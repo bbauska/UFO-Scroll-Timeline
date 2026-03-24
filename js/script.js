@@ -1,4 +1,4 @@
-/* scroll-timeline/js/scripts.js */
+/* bbauska/scroll-timeline/js/scripts.js for scroll-timeline.bauska.org */
 "use strict";
 
 $(function () {
