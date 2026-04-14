@@ -1,4 +1,4 @@
 User-Agent: *
 Disallow: 
 
-Sitemap: https://github.com/bbauska/scroll-timeline
+Sitemap: https://github.com/bbauska/UFO-scroll-timeline
