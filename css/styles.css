@@ -39,7 +39,7 @@ article {
   margin: 15px 0;
 }
 .timeline__nav ul li {
-  margin: 7px 0;  /* 15px 0; */
+  margin: 15px 0;
   padding-left: 0;
   list-style-type: none;
   color: #bfc1c3;  /* grayish blue */
