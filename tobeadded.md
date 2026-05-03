@@ -1,36 +1,29 @@
 <h3>1941</h3>
 <p><b>Early spring — 9:00–9:30 p.m.</b> Rev. 
-	  <a href="https://www.findagrave.com/memorial/13590056/william-guy-huffman">
-	  William Guy Huffman</a> of the Red Star Baptist Church in Cape Girardeau, Missouri, is summoned 
-	  to an apparent airplane crash one Saturday. When he arrives at the scene, about 15 miles from 
-	  town, he finds a weird-looking craft “broken and scattered all around,” but smooth and rounded 
-	  without edges or seams. A cockpit with a chair facing an instrument panel remains intact. Police 
-	  officers, military men, and plain-clothes individuals are sifting through the wreckage. He also 
-	  sees three non-human bodies about 4 feet tall with long arms, oversized heads, and large eyes. 
-	  He says a prayer for them, and afterward sees someone take a photo of an alien propped up by the 
-	  arms between two plainclothesmen. The following evening, he is given a copy of the photo by a 
-	  member of his congregation (thought to be 
-	  <a href="https://www.findagrave.com/memorial/15533576/garland-d-fronabarger">
-	  Garland D. Fronabarger</a>), but he loans it later to someone who never returns it. Huffman’s wife 
-	  <a href="https://www.findagrave.com/memorial/27616322/floy-m_-huffman">
-	  Floy</a> reveals the story to her granddaughter, Charlette Mann, on her deathbed in 1984, who 
-	  relates the story to ufologist 
-	  <a href="https://en.wikipedia.org/wiki/Leonard_H._Stringfield">
-	  Leonard Stringfield</a>. (Paul Blake Smith, MO41: The Bombshell before Roswell, W&B Publishers, 
-	  2015; Clark III 343–344; Billy Booth, “
-	  <a href="https://web.archive.org/web/20201102060859/https:/www.liveabout.com/cape-girardeau-missouri-crash-3293442">
-	  1941 Cape Girardeau, Missouri Crash</a>,” liveabout.com, February 5, 2019; Kevin Randle, “
-	  <a href="http://kevinrandle.blogspot.com/2019/12/cape-girardeau-ufo-crash-1941.html">
-	  Cape Girardeau UFO Crash, 1941</a>,” A Different Perspective, December 5, 2019; Clark IV 379–380)</p>.</li>
-            </ul>
-          </section>     
-        </section>
-        <section class="year">
-          <h3>1947</h3>
-          <section>
-            <h4>July</h4>
-            <ul>
-              <li>      <p><b>July 4 — 1:05–5:30 p.m.</b> Many people in Portland, Oregon—including KOIN newsman Frank 
+<a href="https://www.findagrave.com/memorial/13590056/william-guy-huffman">
+William Guy Huffman</a> of the Red Star Baptist Church in Cape Girardeau, Missouri, is summoned 
+to an apparent airplane crash one Saturday. When he arrives at the scene, about 15 miles from 
+town, he finds a weird-looking craft “broken and scattered all around,” but smooth and rounded 
+without edges or seams. A cockpit with a chair facing an instrument panel remains intact. Police 
+officers, military men, and plain-clothes individuals are sifting through the wreckage. He also 
+sees three non-human bodies about 4 feet tall with long arms, oversized heads, and large eyes. 
+He says a prayer for them, and afterward sees someone take a photo of an alien propped up by the 
+arms between two plainclothesmen. The following evening, he is given a copy of the photo by a 
+member of his congregation (thought to be 
+<a href="https://www.findagrave.com/memorial/15533576/garland-d-fronabarger">
+Garland D. Fronabarger</a>), but he loans it later to someone who never returns it. Huffman’s wife 
+<a href="https://www.findagrave.com/memorial/27616322/floy-m_-huffman">
+Floy</a> reveals the story to her granddaughter, Charlette Mann, on her deathbed in 1984, who 
+relates the story to ufologist 
+<a href="https://en.wikipedia.org/wiki/Leonard_H._Stringfield">
+Leonard Stringfield</a>. (Paul Blake Smith, MO41: The Bombshell before Roswell, W&B Publishers, 
+2015; Clark III 343–344; Billy Booth, “
+<a href="https://web.archive.org/web/20201102060859/https:/www.liveabout.com/cape-girardeau-missouri-crash-3293442">
+1941 Cape Girardeau, Missouri Crash</a>,” liveabout.com, February 5, 2019; Kevin Randle, “
+<a href="http://kevinrandle.blogspot.com/2019/12/cape-girardeau-ufo-crash-1941.html">
+Cape Girardeau UFO Crash, 1941</a>,” A Different Perspective, December 5, 2019; Clark IV 379–380).</p>
+
+<p><b>July 4 — 1:05–5:30 p.m.</b> Many people in Portland, Oregon—including KOIN newsman Frank 
       Cooley, deputy Clark County Sheriff 
       <a href="https://www.findagrave.com/memorial/153181842/fred-c-krives">
       Fred Krives</a>, Portland police officer <a href="https://www.findagrave.com/memorial/3913015/kenneth-a-mcdowell">
@@ -55,16 +48,16 @@
       UFO Reports, 1947</a>”; Bloecher, 
       <a href="https://nicap.org/waves/Wave47Rpt/ReportUFOWave1947_SectionII.htm">
       pp. II-9</a>, 
-	  <a href="http://nicap.org/waves/Wave47Rpt/ReportUFOWave1947_SectionIII.htm">
+      <a href="http://nicap.org/waves/Wave47Rpt/ReportUFOWave1947_SectionIII.htm">
       III-15</a>; James E. McDonald, “
       <a href="https://www.project1947.com/shg/symposium/mcdonald.html">
       Statement on Unidentified Flying Objects</a>,” in Symposium on 
       Unidentified Flying Objects, Hearings, US House Committee on Science and Astronautics, 90th 
       Cong., 2nd Sess., July 29, 1968, p. 58; Michael David Hall and Wendy Ann Connors, “
       <a href="https://cufos.org/PDFs/IUR%20issues/IUR%20Vol.%2023%20No.%204%20Winter%201998.pdf">
-      Alfred Loedding: New Insight on the Man behind Project Sign</a>,” IUR 23, no. 4 (Winter 1998): 5)</p>
-.</li>
-              <li>      <p><b>July 5</b> — Following the rain the night before, 
+      Alfred Loedding: New Insight on the Man behind Project Sign</a>,” IUR 23, no. 4 (Winter 1998): 5).</p>
+
+<p><b>July 5</b> — Following the rain the night before, 
       <a href="https://www.findagrave.com/memorial/9454979/william-ware-brazel">
       Brazel</a> inspects the pastures surrounding the J. B. Foster ranch house southeast of Corona, 
       New Mexico. Riding with him is the young son of the Proctors, 
