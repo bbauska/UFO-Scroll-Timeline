@@ -22,8 +22,8 @@ Leonard Stringfield</a>. (Paul Blake Smith, MO41: The Bombshell before Roswell, 
 1941 Cape Girardeau, Missouri Crash</a>,” liveabout.com, February 5, 2019; Kevin Randle, “
 <a href="http://kevinrandle.blogspot.com/2019/12/cape-girardeau-ufo-crash-1941.html">
 Cape Girardeau UFO Crash, 1941</a>,” A Different Perspective, December 5, 2019; Clark IV 379–380).</p>
-
-<p><b>July 4 — 1:05–5:30 p.m.</b> Many people in Portland, Oregon—including KOIN newsman Frank 
+<h3>1947</h3>
+DONE <p><b>July 4 — 1:05–5:30 p.m.</b> Many people in Portland, Oregon—including KOIN newsman Frank 
       Cooley, deputy Clark County Sheriff 
       <a href="https://www.findagrave.com/memorial/153181842/fred-c-krives">
       Fred Krives</a>, Portland police officer <a href="https://www.findagrave.com/memorial/3913015/kenneth-a-mcdowell">
@@ -56,8 +56,8 @@ Cape Girardeau UFO Crash, 1941</a>,” A Different Perspective, December 5, 2019
       Cong., 2nd Sess., July 29, 1968, p. 58; Michael David Hall and Wendy Ann Connors, “
       <a href="https://cufos.org/PDFs/IUR%20issues/IUR%20Vol.%2023%20No.%204%20Winter%201998.pdf">
       Alfred Loedding: New Insight on the Man behind Project Sign</a>,” IUR 23, no. 4 (Winter 1998): 5).</p>
-
-<p><b>July 5</b> — Following the rain the night before, 
+<h3>1947</h3>
+DONE <p><b>July 5</b> — Following the rain the night before, 
       <a href="https://www.findagrave.com/memorial/9454979/william-ware-brazel">
       Brazel</a> inspects the pastures surrounding the J. B. Foster ranch house southeast of Corona, 
       New Mexico. Riding with him is the young son of the Proctors, 
@@ -83,7 +83,8 @@ Cape Girardeau UFO Crash, 1941</a>,” A Different Perspective, December 5, 2019
       <a href="https://archive.org/details/truthaboutufocra0000rand/page/26/mode/2up">pp. 27–32</a>, 
       <a href="https://archive.org/details/truthaboutufocra0000rand/page/160/mode/2up">161</a>; Michael D. Swords, “
       <a href="https://cufos.org/PDFs/IUR%20issues/IUR%20Vol.%2022%20No.%203%20Fall%201997.pdf">
-      Roswell: Clashing Visions of the Possible</a>,” IUR 22, no. 3 (Fall 1997): 11–13, 33–35; Robert A. Galganski, “<a href="https://cufos.org/PDFs/IUR%20issues/IUR%20Vol.%2025%20No.%204%20Winter%202000-2001.pdf">
+      Roswell: Clashing Visions of the Possible</a>,” IUR 22, no. 3 (Fall 1997): 11–13, 33–35; Robert A. Galganski, “
+      <a href="https://cufos.org/PDFs/IUR%20issues/IUR%20Vol.%2025%20No.%204%20Winter%202000-2001.pdf">
       The Roswell Debris Field: Size Doesn’t Matter</a>,” IUR 25, no. 4 (Winter 2000–2001): 14–19, 30; 
       Donald R. Burleson, “
       <a href="https://cufos.org/PDFs/Roswell/roswell_traj.pdf">
