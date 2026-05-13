@@ -59,7 +59,32 @@
   <meta name="theme-color" content="#ffffff">
 </head>
 <body>
-  <!-- <h1>UFO Scroll Timeline</h1> -->
+
+  <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+  <button onclick="tableOfContentsFunction()" id="myBtn" title="Go to Top">Top</button>
+  <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+  <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~ script function: scrollFunction() ~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+  <script>
+    <!-- get the button -->
+    var mybutton = document.getElementById("myBtn");
+
+    <!-- when the user scrolls down 10px from the top of the document, show the "Top" button -->
+    window.onscroll = function() {scrollFunction()};
+    function scrollFunction() {
+      if (document.body.scrollTop > 10 || document.documentElement.scrollTop > 10) {
+        mybutton.style.display = "block";
+      } else {
+        mybutton.style.display = "none";
+      }
+    }
+
+    <!-- when the user clicks on the button, scroll to the table of contents near top of document. -->
+    function tableOfContentsFunction() {
+      document.getElementById('table-of-contents').scrollIntoView();
+    }
+  </script>
+
+  <h1 id="table-of-contents">UFO Scroll Timeline</h1>
   <article class="timeline">
   <nav class="timeline__nav">
     <ul>  <!-- 91 years = from 1941 to 2026 (85 years) + years 1936, 1897, 1896, 1909, 1561 & year 743 -->
