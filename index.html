@@ -6,7 +6,7 @@
 <head>
   <meta charset="utf-8">
 
-  <!-- meta author, title, desc, keywords, viewport, robots.txt for SEO, ms validate, manifest, canonical url -->
+  <!-- meta author, title, desc, keywords, viewport, robots.txt for SEO, ms validate, manifest, canonical url, stylesheets (local) -->
   <meta name="author" content="Brian Bauska">
   <meta name="title" content="UFO Scroll Timeline (UFO/ET)">
   <meta name="description" content="Scroll down to list UFO/ET encounters by year. Starting 743, then 
@@ -28,7 +28,7 @@
     Minecraft,TheBoys,JTMusic,DAFUQBoom!?,AIMIN,Robby,BrentTV,EYStream,Fortnite,Ninja,SunnyV2,N30N,Dream,
     SamFrank,Technoblade,RyanTrhan,Stellar,DJCook,AnthonyMadia,AnthonyIlla,SmoshGaming,SmoshPit,SmoshCast,
     Fred,cellardoor,BriansBlog,CellarDoor,AJWorld,Packzilla,LearnJSwithBrian,#SilusGamingWorld,
-    #LearnJSwithBrian,Learn,JavaScript,with,Brian,#Silus,#Gaming,#World">
+    #LearnJSwithBrian,Learn,JavaScript,with,Brian,#Silus,#Gaming,#World,#minecraft,minecraft">
   <meta name="viewport" content="width=device-width, initial-scale=1.0, user-scalable=yes">
   <meta name="robots" content="index, follow">
   <meta name="msvalidate.01" content="E96D08A041B521DF16DFE846E131A9BD" />
@@ -60,6 +60,28 @@
   <meta name="theme-color" content="#ffffff">
 </head>
 <body>
+  <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+  <button onclick="topFunction()" id="myBtn" title="Go to top">Top</button>
+  <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+  <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~ script function: scrollFunction() ~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+  <script>
+    <!-- get the button -->
+    var mybutton = document.getElementById("myBtn");
+    <!-- when the user scrolls down 10px from the top of the document, show the "Top" button -->
+    window.onscroll = function() {scrollFunction()};
+    function scrollFunction() {
+      if (document.body.scrollTop > 10 || document.documentElement.scrollTop > 10) {
+        mybutton.style.display = "block";
+      } else {
+        mybutton.style.display = "none";
+      }
+    }
+    // when the user clicks on the button, scroll to the table of contents near top of document.
+    function topFunction() {
+      document.getElementById('table-of-contents').scrollIntoView();
+    }
+  </script>
+  <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
   <!-- <h1>UFO Scroll Timeline</h1> -->
   <article class="timeline">
   <nav class="timeline__nav">
@@ -23588,7 +23610,8 @@
 5/13/2026 1pm<br>
 5/14/2026 2am<br>
 5/15/2026 9pm<br>
-Last Updated 5/17/2026 4pm</p>
+5/17/2026 4pm<br>
+Last Updated 5/17/2026 9pm</p>
 -->
 </footer>
 <script>
