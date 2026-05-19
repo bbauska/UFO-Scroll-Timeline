@@ -10,7 +10,7 @@ $(function () {
     offsetTop = parseInt(timeline.css('top'));
   var TIMELINE_VALUES = {
     start: 190,
-    step: 30
+    step: 91
   };
   $(window).resize(function () {
     timeline.removeClass('fixed');
