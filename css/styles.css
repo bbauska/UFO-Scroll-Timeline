@@ -50,7 +50,7 @@ article {
 }
 .timeline__nav ul li.active {
   font-weight: bold;
-  color: #f7f7f7;  /* dark red, was: f94125=vivid red */
+  color: #f94125;  /* dark red, was: f94125=vivid red */
   border-bottom: 1px dotted transparent;
   transform: scale(1.2);
 }
