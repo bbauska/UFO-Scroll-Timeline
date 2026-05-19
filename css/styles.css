@@ -13,6 +13,7 @@ html {
 body {
   font-family: "Exo 2", sans-serif;
   line-height: 1.5;
+  background-color: #f7f7f7;  /*  Very light gray (mostly white). */
 }
 
 .wrapper {
@@ -49,7 +50,7 @@ article {
 }
 .timeline__nav ul li.active {
   font-weight: bold;
-  color: #f94125;  /* vivid red */
+  color: #f7f7f7;  /* dark red, was: f94125=vivid red */
   border-bottom: 1px dotted transparent;
   transform: scale(1.2);
 }
