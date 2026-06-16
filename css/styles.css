@@ -75,3 +75,6 @@ article {
 #myBtn:hover {
   background-color: #8b4513;  /* dark orange, 555=very dark gray */
 }
+p {
+  text-align: justify;
+}
