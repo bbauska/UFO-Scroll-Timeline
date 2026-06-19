@@ -42,14 +42,14 @@ article {
   margin: 15px 0;
   padding-left: 0;
   list-style-type: none;
-  color: #6f7578;  /* b30000 = strong red, 6f7578, bfc1c3 - grayish blue */
+  color: #6f7578;  /* dark grayish blue, b30000 = strong red, 6f7578, bfc1c3 - grayish blue */
   border-bottom: 1px dotted rgba(0, 0, 0, 0.3);
   cursor: pointer;
   transition: all 0.3s ease-out;
 }
 .timeline__nav ul li.active {
   font-weight: bold;
-  color: #f94125;  /* dark red, was: f94125=vivid red */
+  color: #cc2006;  /* strong red, dark red, was: f94125=vivid red */
   border-bottom: 1px dotted transparent;
   transform: scale(1.2);
 }
