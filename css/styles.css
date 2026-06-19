@@ -42,7 +42,7 @@ article {
   margin: 15px 0;
   padding-left: 0;
   list-style-type: none;
-  color: #b30000;  /* 6f7578, bfc1c3 - grayish blue */
+  color: #6f7578;  /* b30000 = strong red, 6f7578, bfc1c3 - grayish blue */
   border-bottom: 1px dotted rgba(0, 0, 0, 0.3);
   cursor: pointer;
   transition: all 0.3s ease-out;
