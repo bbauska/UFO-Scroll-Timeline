@@ -1,7 +1,7 @@
 {
   "name": "UFO Scroll Timeline",
   "short_name": "UFO Timeline", 
-  "start_url": "/ufo-scroll-timeline.bauska.org",
+  "start_url": "/index.html",
   "display": "standalone",
   "icons": [
     {
