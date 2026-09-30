@@ -1310,9 +1310,8 @@ IL
 2
 BBU
 flying oval object, the size of a car, came within 10 ft of car
-11/30/12
-Category 02 - Close Encounters: Objects within 500 feet of the witness
-Page 10 of 105
+
+#### Page 11 of 105
 
 660303
 Oswego
@@ -1411,9 +1410,8 @@ In
 Dawn, EST. Police and others saw a round luminous yellow-white object with
 projections on top. The UFO paced a car, swerving from side to side, its light
 reflected from the hood of the car. (NICAP notes.)
-11/30/12
-Category 02 - Close Encounters: Objects within 500 feet of the witness
-Page 11 of 105
+
+#### Page 12 of 105
 
 660319-20
 Freeport
@@ -1526,7 +1524,7 @@ OK
 edge was seen hovering about 25 feet over woods, point downward, by a farm
 couple for about an hour. (Associated Press story, few details.)
 
-#### Page 12 of 105
+#### Page 13 of 105
 
 660326
 Ann Arbor
@@ -1607,7 +1605,7 @@ blue flame was emitted from the protuberances, and it rose into the clouds
 leaving a comet-like trail. An independent witness confirmed the sighting.
 (Flying Saucer Review, Vol. 12, No. 4, July-August 1966, P. 31.)
 
-#### Page 13 of 105
+#### Page 14 of 105
 
 660330
 Rehoboth
@@ -1737,7 +1735,7 @@ MA
 and blue lights along its perimeter was seen hovering off Route 16. [Compare
 to April 12, Brockton, Mass., sighting.] (Fowler, 1974, p. 337.)
 
-#### Page 14 of 105
+#### Page 15 of 105
 
 660417
 Peabody
@@ -1830,7 +1828,7 @@ hovered. The frightened witnesses fled at high speed, and the UFO apparently
 followed. The object was finally seen speeding away to the northeast. (Keyhoe
 & Lore, 1969a, p. 8; report by Walter N. Webb.)
 
-#### Page 15 of 105
+#### Page 16 of 105
 
 660422
 Wenham
@@ -1922,7 +1920,7 @@ hover above the trees for 30 minutes. Smaller lights, occasionally flashing,
 darted to and from it. The object departed when an aircraft approached the
 area (aircraft avoidance). (NICAP notes.)
 
-#### Page 16 of 105
+#### Page 17 of 105
 
 660506
 Carnestown
