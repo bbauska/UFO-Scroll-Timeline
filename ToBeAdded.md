@@ -10413,73 +10413,30 @@ WV
 highway in Martinsburg, West Virginia. There were five lights on the bottom
 of the craft and it made a humming noise.
 
-850915
-Bagshot Heath, Surrey
-UK
-2
-Disc-shaped object hovered ahead of car; second object paced alongside car,
-bright illumination of area (section IX)
+85 September 15 - Bagshot Heath, Surrey, United Kingdom. Disc-shaped object hovered ahead of car; second object paced 
+alongside car, bright illumination of area (section IX)
 
-860107
-Butler
-PA
-2
-UFO emitted six light beams toward ground. About 20 minutes later in
-Pittsburgh, silver-gray disc with body lights hovered, mist formed around it.
-Object tilted, moved out of sight (section IX).
+86 January 07 - Butler, Pennsylvania. UFO emitted six light beams toward ground. About 20 minutes later in
+Pittsburgh, silver-gray disc with body lights hovered, mist formed around it. Object tilted, moved out of 
+sight (section IX).</p>
 
-860426
-Chernobyl, Ukraine
-USSR
-2
-C
-5
-NC
-Object Observed After Chernobyl Explosion
+86  April 26 - Chernobyl, Ukraine, USSR. Object Observed After Chernobyl Explosion.</p>
 
-870207
-Potters Mills
-PA
-2
-Motorists encountered hovering large oval object, lights around perimeter,
-terrain brightly illuminated (section IX).
+87 February 07 - Potters Mills, Pennsylvania. Motorists encountered hovering large oval object, lights around perimeter,
+terrain brightly illuminated (section IX).</p>
 
-870722
-Hawesville
-KY
-2
-The Hawesville Encounter
+87 July 22 - Hawesville, Kentucky. The Hawesville Encounter.</p>
 
-870901
-Bangor
-WA
-2
-Ellipse with windows beamed light down on children in playground, two
-humanoids visible in object (section XII).
+87 September 01 - Bangor, Waine. Ellipse with windows beamed light down on children in playground, two
+humanoids visible in object (section XII).</p>
 
-880119
-Launceston
-AR
-2
-Glowing red object followed car, moved up and down as if following contours
-of local terrain (section X).
+88 January 19 - Launceston, Arkansas. Glowing red object followed car, moved up and down as if following contours
+of local terrain (section X).</p>
 
-880304
-Eastlake
-OH
-2
-C
-5
-NC
-Eastlake Close Encounter
+88 March 04 - Eastlake, Ohio. Eastlake Close Encounter.</p>
 
-890831
-Butler Township
-PA
-2
-Luminous mushroom-shaped object hovered over field, two smaller objects
-with red lights emerged, operated independently, departed at high speed
-(section X).
+89 August 31 - Butler Township, Pennsylvania. Luminous mushroom-shaped object hovered over field, two smaller objects
+with red lights emerged, operated independently, departed at high speed (section X).</p>
 
 890921-1007
 Voronezh
@@ -10489,54 +10446,25 @@ UFO sighting concentration in vicinity. Four landings and three different kinds
 of entities reported (sections VIII, XII); geodesic engineer saw maneuvering
 airship-like object September 24 (section IV).
 
-891129
-Eupen
-Belgium
-2
-Police patrol car illuminated by brilliant light beam, hovering dark triangular
-object, humming noise, alternately moved and hovered (section I).
+89 November 29 - Eupen, Belgium. Police patrol car illuminated by brilliant light beam, hovering dark triangular
+object, humming noise, alternately moved and hovered (section I).</p>
 
-900302
-Beavercreek
-IL
-2
-Brilliant white pulsating oval paced truck, hovered over road, instant
-relocation over truck; cast light beam down (sections IX, X).
+90 March 2 - Beavercreek, Illinois. Brilliant white pulsating oval paced truck, hovered over road, instant
+relocation over truck; cast light beam down (sections IX, X).</p>
 
-900304
-Wood End, Provincetown
-MA
-2
-Sphere with windows seen from boat near lighthouse. Several objects took off
-at high speed with loud booms, stopped, hovered, and flashed bright white
-lights (section VI).
+90 March 4 - Wood End, Provincetown, Massachusetts. Sphere with windows seen from boat near lighthouse. Several objects 
+took off at high speed with loud booms, stopped, hovered, and flashed bright white lights (section VI).</p>
 
-900327
-Kokomo
-IN
-2
-Blindingly bright oval object approached car, passed low overhead. Driver
-fled, looked back, saw object hovering over a field (section XII).
+90 March 27 - Kokomo, Indiana. Blindingly bright oval object approached car, passed low overhead. Driver
+fled, looked back, saw object hovering over a field (section XII).</p>
 
-920819
-Tucson
-AZ
-2
-Manta ray-shaped object with body lights approached car, falling leaf motions,
-hovered, light beam brightly illuminated terrain (section VI).
+92 August 19 - Tucson, Arizona. Manta ray-shaped object with body lights approached car, falling leaf motions,
+hovered, light beam brightly illuminated terrain (section VI).</p>
 
-940724
-Melbourne, Victoria
-AU
-2
-Motorists encountered glowing orange oblong objects, one followed car;
-diamond-shaped object hovered overhead when they stopped to look. Missing
-time period discovered upon arrival home (Basterfield, 1997b).
+94 July 24 - Melbourne, Victoria, Australia. Motorists encountered glowing orange oblong objects, one followed car;
+diamond-shaped object hovered overhead when they stopped to look. Missing time period discovered upon arrival home 
+(Basterfield, 1997b).</p>
 
-941200
-Trumball County
-OH
-2
-Multiple reports of low-flying object
+94 December - Trumball County, Ohio. Multiple reports of low-flying object.</p>
 
 
