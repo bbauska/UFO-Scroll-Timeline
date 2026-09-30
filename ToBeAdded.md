@@ -233,6 +233,7 @@ Gulf of Guinea
 3:05 a.m. Three persons aboard the "Fort Salisbury," including Second Officer
 A. H. Raymer, saw a huge, dark object bearing lights in the sea ahead. It was
 observed sinking slowly. Estimated length: 200 m.
+
 19001172
 Helmer
 IN
@@ -275,6 +276,7 @@ Annam
 4:10 a.m. An elongated object following a west to east trajectory flew over the
 town. It gave off a strong light and was seen by two fishermen to plunge into
 the sea 6 km away from the coast, after a steady flight of about 9 min.
+
 19091222
 Worcester
 MA
@@ -282,6 +284,7 @@ MA
 "Mysterious Airship" emitting a bright beam of light appeared moving SE to
 NW, hovered over city, moved away. Seen again two hours later; hovered,
 moved away to south and turned east.
+
 19100100
 Invercargill, New Zealand
 AU
@@ -290,6 +293,7 @@ AU
 policeman saw a cigar-shaped object hovering at 30 m altitude. A man
 appeared at a lateral door and was heard shouting some words in an unknown
 language.
+
 1910Summer
 Vernal
 UT
@@ -297,6 +301,7 @@ UT
 A man on horseback at night dismounted when his horse became disturbed,
 and walked to the edge of a clearing in the woods. There he saw a low-
 hovering disc with a row of lights.
+
 140600
 Hamburg
 Germany
@@ -304,6 +309,7 @@ Germany
 4:00 a.m. Gustav Herwagen opened the door of his house and saw in a field a
 shining cigar- shaped object with illuminated windows. Near it were four or
 five dwarfs 1.20 m tall, clad in light clothing.
+
 140800
 Georgian Bay
 CAN
@@ -312,6 +318,7 @@ William J. Kiehl and seven other persons saw a spherical craft on the surface
 of the water. On its deck were two small men wearing green-purple clothes.
 They seemed to be busy with a hose, plunging it into the water. (This was
 shown to be as a hoax a long time ago.)
+
 161000
 Youngstown
 PA
@@ -319,12 +326,14 @@ PA
 John Boback, 17, was walking along the railroad tracks between Youngstown
 and Mt. Braddock when he saw a saucer-shaped object with a platform and
 rows of lights, sitting in a field 30 m to his left.
+
 18Early
 Waco (near)
 TX
 2
 Reddish cigar-shaped object, with no motor or rigging, passed silently from
 SW to NE. (NICAP UFO Evidence, 1964, Hall)
+
 220222
 Hubbell
 NE
@@ -334,6 +343,7 @@ pitched sound and saw a circular object intercepting starlight. It became
 brilliantly lighted and landed in a hollow. Soon afterword, a creature over 2.4
 m tall was seen flying from the direction where the object had landed. It left
 tracks in the snow, which Lamb followed without results.
+
 220909
 Barmouth, Wales
 UK
@@ -341,18 +351,21 @@ UK
 John Morris and William James saw an object fall into the ocean so slowly
 that it was thought to be a plane. A boat was sent out, but nothing was found.
 (Magonia #45, Fort 639)
+
 230000
 Greencastle
 IN
 2
 Revolving red object passed over-head from NE to SW. Two witnesses were
 college professors. (NICAP UFO Evidence, 1964, Hall)
+
 240100
 Unknown City
 OK
 2
 White oval-shaped object lit up ground, moved out of sight over horizon.
 (NICAP UFO Evidence, 1964, Hall)
+
 281100
 Milton
 ND
@@ -360,6 +373,7 @@ ND
 A UFO, round "like an inverted soup plate," sped overhead emitting rays of
 light which illuminated the ground and startled cattle. (NICAP UFO Evidence,
 1964, Hall)
+
 290612
 Fermeneuve
 CAN
@@ -377,6 +391,7 @@ CAN
 Five persons among them Einar Rostivold, saw a huge ball of light giving off
 fiery colors, 25 km from Robsart. It landed slowly, vanished gradually after
 illuminating the whole countryside for 30 min.
+
 310101
 Cobden, Ont
 CAN
@@ -384,6 +399,7 @@ CAN
 UFO sighted in early morning, had bright light on front which lit up tree-tops,
 flashing lights on rear. Object made sweeping curve, sped up and climbed out
 of sight. (NICAP UFO Evidence, 1964, Hall)
+
 33Summer
 Chrysville
 PA
@@ -391,27 +407,32 @@ PA
 Morning. A man observed a faint violet light in a field between this town and
 Morrestown. Walking to it, he found an ovoid object 3 m in diameter and 2 m
 thick with a circular opening similar to a vault door.
+
 331230
 Unknown City
 Sweden
 2
 Low-flying aeroplane (Page 7 Ref. 1)
+
 340401
 Oslo
 Norway
 2
 A very large aeroplane with eight propellers (Page 8 Ref. 1)
+
 370101
 Unknown City
 NC
 2
 30-40 foot in diameter object, no propellers, gun metal color (Page 10-11 Ref.
 1)
+
 370211
 Kvalsik
 Norway
 2
 Large aeroplane with red and green glowing lights (Page 11, Ref. 1)
+
 380725
 Guadalaraja
 Spain
@@ -420,11 +441,13 @@ Soldiers at the Spanish Civil War battlefront were illuminated by a bright
 glow, then saw an oval object about 10-12 meters in diameter shaped like “two
 inverted plates” hovering near the ground. A cylindrical column came down
 from the center and two beings emerged.
+
 38Summer
 Unknown City
 MA
 2
 Silvery object with rectangular portholes (Page 12 Ref. 1)
+
 391113
 Brockworth
 UK
@@ -432,12 +455,14 @@ UK
 Motorist heard high-pitched humming sound, saw a gray bell-shaped object
 hovering over a field, dark window-like patches visible on its side. (Ref. 3;
 Jenny Randles & Peter Warrington, Sience & The UFOs, 1985, p. 3.)
+
 420829
 Columbus
 MS
 2
 Control tower operator at Army Air Base saw two round reddish objects hover
 over field. [NICAP UFO Evidence, 1964, Hall, III]
+
 430900
 Oncativo
 Argentina
@@ -447,6 +472,7 @@ large, saucer-shaped object on the ground 500 m to the left of the road. It
 glowed with a bluish-green light, made a whistling sound, rose to 100 m
 altitude, then left at fantastic speed. A strange metal block is said to have been
 found at the spot. (Magonia #50, GEPA Dec., 68)
+
 431100
 Escondido
 CA
@@ -456,6 +482,7 @@ with dome and square windows hovering about 15 feet above the roof of their
 house. Human-like silhouettes were visible through the windows. When the
 woman shone a flashlight, the object blinked out and disappeared. (Ref. 3;
 Greenwood, UFO Historical Revue, June 1998.)
+
 44Summer
 Normandy
 France
@@ -464,6 +491,7 @@ Los Angeles columnist George Todt, in a party of four Army officers
 including a Lt. Col., watched a pulsating red fireball sail up to the front lines,
 hover for 15 minutes, then move away. [NICAP UFO Evidence, 1964, Hall,
 IV]
+
 440900
 Antwerp
 Belgium
@@ -483,6 +511,7 @@ from the woods, then he saw a large shining sphere rise rapidly from the
 ground and hover at treetop height. It appeared moon-like; golden in color,
 and made no sound. After about 5 minutes the object abruptly disappeared.
 (Ref. 3; Anders Liljegren AFU archives.)
+
 450300
 Belfast
 ME
@@ -490,12 +519,14 @@ ME
 A man out hunting observed an elongated object flying very slowly, tilted
 toward the earth. It crashed into some trees at the end of a clearing. (Magonia
 #53, FS May., 59)
+
 450300
 Unknown City
 NM
 2
 Object aluminum colored, 12 to 14 feet off ground, motionless ,swept away
 like dragonfly. (Page 142-143 Ref.1)
+
 450300
 Aleutian Islands
 At Sea
@@ -503,6 +534,7 @@ At Sea
 Aboard the US attack transport "Delarof," 14 sailors saw a dark sphere rise out
 of the ocean, follow a curved trajectory, and fly away after circling their ship.
 (Magonia #54, Evidence 30) [NICAP UFO Evidence, 1964, Hall, IV]
+
 45Summer
 Aleutian Islands
 At Sea
@@ -510,6 +542,7 @@ At Sea
 Crew saw large round object emerging from sea; 150-20 feet in diameter;
 object circled ship; three white flashes observed in direction object departed.
 (Page 188-189 Ref.1)
+
 460500
 Angelholm
 Sweden
@@ -521,6 +554,7 @@ uniform-like clothing apparently working on the craft. Later he saw the craft
 take off emitting bright red light, then speed away. Burned grass and other
 trace marks were found at the site. (Ref. 3; Flying Saucer Review, March-
 April 1972.)
+
 4608Late
 Oklahoma City
 OK
@@ -529,6 +563,7 @@ Disc-shaped craft with windows, humanoid figures visible inside, hovered at
 low altitude. After about 1-1/2 minutes the object rotated, then sped away
 disappearig in seconds. (Ref. 3; Case summary by Ted Bloecher, 14 pages.
 Interviews by Bloecher, Lucius Farish, and Mildred Higgins.)
+
 470813
 Snake River
 ID
@@ -537,6 +572,7 @@ C
 5
 BBU
 Snake River Case
+
 4708Late
 Vaughn (near)
 NM
@@ -545,6 +581,7 @@ NC
 LC
 AFOSI Case 2: approx 20:00 - Basketball-Sized Object Explodes Near
 Colonel
+
 480829
 Maplewood
 OH
@@ -553,18 +590,21 @@ BBU
 Farmer Niswenger saw a large silvery sphere rise from a wooded area and
 hover above his farm, dropping a silvery substance that disintegrated before
 touching the ground. (Vallée Magonia 67; FUFOR Index)
+
 490306
 Killeen Base, Camp Hood
 TX
 2
 BBU
 blue-white object about 2 ft x 1 ft in size
+
 490428
 Homer
 MI
 2
 BBU
 pursued 6 flying discs 10 inches diameter by car (FOIA)
+
 500304
 Newburgh (near)
 IN
@@ -573,18 +613,21 @@ A man was driving east approximately two miles east of the junction of
 Indiana State Hwy 66 and 261 north of Newburgh, when he observed an
 object he believed to be a rocket at a distance of approximately 50-75 yards in
 front of his automobile.
+
 500305
 Bloomfield
 NM
 2
 Night. A dark, five-foot diameter disc paced a car. When the driver stopped
 the car the object circled the car, then sped away at a high speed.
+
 500408
 Kokomo
 IN
 2
 706
 grey metallic disc, 50 ft in diameter, 15 ft thick, top-shaped
+
 500617
 Hasselbach
 East Germany
@@ -599,12 +642,14 @@ Kingman (near)
 KS
 2
 Rotating disc hovered, sped away when car approached [XII]
+
 501013
 Oak Ridge
 TN
 2
 NC
 Sightings by AEC security patrols
+
 501015
 Oak Ridge
 TN
@@ -618,23 +663,27 @@ TX
 2
 962
 pear-shaped object the length of a B-29 fuselage (100 ft),
+
 520329
 Glen Burnie
 MD
 2
 BBU
 50 ft flat silver disc with cupola/dome
+
 520425
 San Jose
 CA
 2
 Scientists close encounter with small daylight disc
+
 520427
 Pontiac
 MI
 2
 11:06 pm. Witness observed an object approximately 200 feet in daiameter
 and approximately 200 feet off the ground.
+
 520427
 Birmingham
 MI
@@ -642,29 +691,34 @@ MI
 BBU
 Witness observed an object approximately 200 feet in daiameter and
 approximately 200 feet off the ground
+
 520613
 Fox Hill
 VA
 2
 object described as similar to a discus used in athletics, about 25 to 30 feet in
 diameter hovering
+
 520719
 Savanna River
 SC
 2
 Hundreds of employees from AEC witnessed UFO cavort
+
 520728
 Hallock
 MN
 2
 BBU
 (FUFOR Index)
+
 520820
 Neffesville
 PA
 2
 1938
 undescribed object flying at 500 ft altitude
+
 520827
 Pittsburg
 KS
@@ -673,12 +727,14 @@ T
 5
 Object reported hovering over open field; bluish lights seen through ports;
 swift ascent when observed
+
 521031
 Fayetteville
 GA
 2
 2200
 orange blimp-shaped object, 80 ft long 20 ft wide
+
 530307
 Yuma
 AZ
@@ -686,6 +742,7 @@ AZ
 Air Force officers at a gunnery meet observed about 12 disc-shaped objects
 that dove down and hovered over the base during the meet. [AP story, Mar.
 9th; UFOE, III]
+
 540812
 Yoron-Jima Island
 Okinawa
@@ -694,6 +751,7 @@ C
 5
 BBU
 S. S. Docteur Close Encounter
+
 540907
 Origny
 France
@@ -701,17 +759,20 @@ France
 12:30 a.m. Robert Chovel and his wife and father-in-law were driving home
 from the theater in Hirson, Aisne Department when they saw a luminous, red-
 orange "disk" flying above the railroad tracks.
+
 540916
 Roanoke (near)
 VA
 2
 Shiny, round object buzzed radio tower; transmitter failed to operate properly.
 [UFOE, VIII]
+
 541003
 Waben (near)
 France
 2
 UFO paced car. [UFOE, II]
+
 541022
 Marysville
 OH
@@ -719,6 +780,7 @@ OH
 School principal, teacher, 60 students saw silver cigar-shaped UFO with
 "portholes" hover over school, then speed away; "angel's hair" fell. [UFOE,
 VIII]
+
 550302
 Huntley
 IL
@@ -727,42 +789,49 @@ C
 5
 BBU
 Car Followed By Three Black Objects With Lights
+
 551028
 Galloway
 UK
 2
 Disc with row of blue lights on rim, maneuvered slowly over car on lonely
 road. [UFOE, XII]
+
 560117
 Orangeville
 CAN
 2
 Disc-shaped UFO seen at close range; rings of light visible on bottom. [UFOE,
 XII]
+
 561100
 Malibu
 CA
 2
 Flat oval object with three window-like markings on underside flew low,
 through searchlight beam. (UFOE, XII)
+
 571008
 Bua Province
 Fiji Islands
 2
 Natives in small boat saw UFO descend vertically, hover about 20 feet above
 sea.
+
 571106
 Atlanta (near)
 GA
 2
 Three truckers independently reported seeing reddish elliptical objects on the
 road.(UFOE)
+
 571106
 Merom
 IN
 2
 Gilham Case. Ironworker stood under UFO for ten minutes, treated at hospital
 for burns
+
 571110
 Madison
 OH
@@ -777,6 +846,7 @@ CA
 2
 Police watched two UFOs with flashing body lights, maneuver near coastline.
 [UFOE, VII] Similar sightings for two nights in El Toro and Santa Ana.
+
 581003
 Wasco
 IN
@@ -784,12 +854,14 @@ IN
 C
 5
 The Monon RR UFO Incident
+
 581027
 Union Dale
 PA
 2
 BBU
 Large gray cigar-like object with an assembly tail flew at treetop height
+
 581026
 Lock Raven Dam
 MD
@@ -799,11 +871,13 @@ C
 6148
 NC
 Egg-Shaped Object & E-M Effects Over Bridge
+
 581220
 Dunellen
 NJ
 2
 Police witnesses, vehicle encounter
+
 590708
 Columbus
 IN
@@ -811,41 +885,48 @@ IN
 Family in car chased three pulsating object seen moving slowly at low altitude
 in V-formation. (Two WTTV employees saw similar formation few minutes
 earlier, 25-30 miles away.) [NICAP UFOE, II]
+
 600413
 Red Bluff
 CA
 2
 State Police encounter with highly ma-neuverable elliptical object, red light
 beams swept ground (NICAP UFOE, V).
+
 600425
 Plymouth
 NH
 2
 Former Town Selectman saw bright red cigar-shaped UFO hover, speed away.
 [NICAP UFOE, VII]
+
 610418
 Eagle River
 WI
 2
 BBU
 CE-3 case involving ETs giving 'pancakes' for water
+
 610500
 Union Mills
 IN
 2
 First Week of May - Hemispherical UFO with "portholes", on road; took off
 as car approached. [NICAP UFOE, XII]
+
 610817
 Stillwater
 MN
 2
 A V-formation of yellowish lights (or V-shaped UFO with body lights) passed
 behind trees at low altitude. [NICAP UFOE, II]
+
 611021
 Datil (near)
 NM
 2
 Four lights paced car, maneuvered, shot away upward. [NICAP UFOE, II]
+
 620710
 New Iberia
 LA
@@ -853,6 +934,7 @@ LA
 Disc-shaped UFO with rotating dome on top swept low over Naval Auxiliary
 Air Station, slowed over area of runway and hangar, then climbed out of sight
 at 20 to 30 degrees angle accelerating rapidly. [NICAP UFO Evidence, IV]
+
 620807
 Oracle
 AZ
@@ -861,18 +943,21 @@ C
 5
 NC
 UFO over missile silo
+
 620815
 Denver (near)
 CO
 2
 Large UFO hovering over a high line tower, chased by Air Force
 helicopters.[This is in the area of the Lowry AFB Titan I ICBM Complex].
+
 620918
 Hawthorne
 NJ
 2
 7:55 p.m.; A family in Hawthorne watched a greenish disc descend low over
 their house. [NICAP UFO Evidence]
+
 621025
 Delta
 CO
@@ -881,6 +966,7 @@ Police dispatcher saw round glowing object from radio room window. State
 patrolman and Cedaredge Marshal observed two UFOs "like an inverted
 umbrella with a number of bright, tail-like appendages." [NICAP UFO
 Evidence, VII]
+
 621222
 Buenos Aires
 Argentina
@@ -893,18 +979,21 @@ UK
 2
 BBU
 object on the ground with 4 windows, emitting yellow-orange light
+
 630128
 Mamina
 Chile
 2
 BBU
 2 disk-shaped objects followed truck driver
+
 630205
 Ascension
 Paraguay
 2
 BBU
 an object land on the school grounds
+
 630521
 Mt. Gambler (near)
 AU
@@ -913,6 +1002,7 @@ Unconfirmed report that a brilliant light followed a car. A youth stated the
 object was at side of road, rose suddenly as he approached, hovered overhead,
 then followed car. The Dominion. Adelaide, reported May 22 this was "the
 second report of such an occurrence in a week."
+
 630523
 Sunnyvale
 CA
@@ -931,6 +1021,7 @@ A student saw a gray, apparently spherical UFO with a central row of yellow
 lig3hts. Apparently at low altitude, the object made a "sizzling sound" as it
 moved east, turned sharply and disappeared to the north. [Witness filed
 NICAP report form.]
+
 630626
 Rockland
 MA
@@ -940,6 +1031,7 @@ UFO. The object hovered, then moved away horizontally. The shape was
 observed in silhouette, partly illuminated by a white light on top and orange
 light on bottom. [Witnesses interviewed by NICAP member Raymond
 Fowler.]
+
 630809
 Mount Vernon
 IL
@@ -947,6 +1039,7 @@ IL
 C
 5
 Big As A Washtub
+
 630813
 Ellsworth (near)
 ME
@@ -956,6 +1049,7 @@ ground adjoining Molasses Pond, for more than an hour. Body lights were
 visible along its length, and rays of light shone upward from each end of the
 object occasionally. [Witnesses interviewed by Walter N. Webb, NICAP
 Adviser.]
+
 631004
 East Hartland
 CT
@@ -964,6 +1058,7 @@ State Representative L. B. Martin, about 1:00 p.m., saw a silvery triangular
 object with a row of black dots across the leading edge. The UFO passed
 overhead, emitting a flame-like tail, at an estimated speed of 2000 mph.
 [Report obtained by NICAP-CONN Affiliate.]
+
 631031
 Daylston, Victoria
 AU
@@ -974,6 +1069,7 @@ seemed to be 8-12 feet long, glowing orange and red. It then darted to the side
 of the road, continuing to pace the van for a while, finally zooming ahead over
 a hill and apparently descending. It was not seen again. Other witnesses
 reported seeing a maneuvering light at the time of the sighting.
+
 631120
 Neche
 ND
@@ -983,6 +1079,7 @@ their car at night while they were en route home. They were on highway 55
 east of town when they first saw the UFO. It appeared to be surrounded by a
 light haze. The glowing object sped across in front of the car and circled
 around the side before disappearing to the southeast.
+
 640126
 Moultrie
 GA
@@ -991,6 +1088,7 @@ GA
 altitude, turned, appeared to follow car, then fell back and seemed to head
 toward ground. Driver was physics student at Georgia Institute of
 Technology. (NICAP report form.)
+
 640517
 Tipton
 IN
@@ -998,6 +1096,7 @@ IN
 10:15 p.m. Citizens and police officers called to the scene, witnessed a UFO.
 The reddish object appeared round while hovering, then darted across the sky
 and appeared flattened while in motion. (UFOI-II,7)
+
 640728
 Lake Chelan
 WA
@@ -1006,6 +1105,7 @@ C
 5
 BBU
 Round Object Descends To Ground
+
 650105
 Wallops Island
 VA
@@ -1039,6 +1139,7 @@ C
 5
 BB
 Saucer With Domed Top / Humming Sound / 32-40 Witnesses
+
 650404
 Keesler AFB
 MS
@@ -1049,6 +1150,7 @@ C
 40' Black Oval Object 500' Away
 
 #### PAGE 10 OF 105
+
 650423
 Rivesville, WV Woman saw a 25 ft object land near her house shaped like a disc
 
@@ -1071,6 +1173,7 @@ TX
 BBU
 1:30 AM - Man in a car was passed by a huge, orange object flying at ground
 level
+
 650830
 Urbana
 OH
@@ -1079,6 +1182,7 @@ C
 5
 9864
 White Ball Hits Road Flies Away
+
 650903
 Damon
 TX
@@ -1087,6 +1191,7 @@ C
 5
 9915
 Dark Grey Disc Shadows Police Car
+
 650903
 Exeter
 NH
@@ -1095,6 +1200,7 @@ C
 5
 9890
 The Exeter / Muscarello Case
+
 650916
 Pretoria
 S. Africa
@@ -1102,6 +1208,7 @@ S. Africa
 C
 5
 Saucer Blasts Off From Highway
+
 650922
 Clover
 MN
@@ -1110,6 +1217,7 @@ C
 5
 BBU
 Close Encounter With 4' Sphere
+
 650925
 Rodeo
 NM
@@ -1119,6 +1227,7 @@ C
 9971
 NC
 Two Lights Illuminate Car At 30-50' Altitude
+
 651002
 Salem
 MA
@@ -1126,6 +1235,7 @@ MA
 C
 5
 Cigar Hovers Over Smoke Stacks
+
 660107
 Winslow
 UK
@@ -1135,6 +1245,7 @@ investigate and saw a domed disc (rounded on top, flat on bottom) hovering
 low above a field. A greenish glow was visible around the top. After 5 seconds
 the UFO flew away rapidly. An independent witness later corroborated the
 sighting. (Flying Saucer Review, 12(2), March-April 1966, p. 3.)
+
 660111
 Wanaque
 NJ
@@ -1145,6 +1256,7 @@ patterns over a reservoir, occasionally making abrupt changes in altitude
 (vertical maneuvers). Sightings continued for more than an hour. (NICAP
 notes; U.F.O. Investigator, Vol. Ill, No. 6, Jan.-Feb. 1966, p. 3; New York
 Journal-American, Jan. 12, 1966).
+
 660111
 Myerstown
 PA
@@ -1154,6 +1266,7 @@ vicinity of Harrisburg, Pennsylvania, a nurse and others together in a car saw a
 luminous disc, like one saucer inverted on top of another, at relatively close
 range as it hovered above the car. After about 5 minutes, the object suddenly
 accelerated and sped away. (Hynek, 1972, pp. 89-90, 238.)
+
 660118
 New Britain
 CT
@@ -1162,18 +1275,21 @@ CT
 observed by a senior metallurgist for about 7 to 10 minutes as it passed
 overhead at his workplace. It had a string of red lights that blinked on and off.
 (U.F.O. Investigator, Vol. Ill, No. 6, Jan.-Feb 1966, p. 3.)
+
 660129
 Rexburg
 ID
 2
 BBU
 flat, well-defined object blocking the road, the size of a truck
+
 660216
 Brunswick NAS
 ME
 2
 BBU
 luminous object flashing red, blue, and green lights lands in the woods
+
 660225
 Quipapa
 Brazil
@@ -1187,6 +1303,7 @@ area near their house, then flew away. No sound was heard. One of the girls
 suffered unspecified "effects" for a period of time. Grass was found depressed
 (imprints) at the landing spot. (Phillips, 1975. p. 40; from Flying Saucer
 Review, March 1971 .)
+
 660226
 Farmington (5 miles E of)
 IL
@@ -1196,12 +1313,14 @@ flying oval object, the size of a car, came within 10 ft of car
 11/30/12
 Category 02 - Close Encounters: Objects within 500 feet of the witness
 Page 10 of 105
+
 660303
 Oswego
 NY
 2
 BBU
 object fly slowly to the S, hover, come within 50 ft, then fly off to the SW
+
 660311
 Indio
 CA
@@ -1212,6 +1331,7 @@ exact shape of the objects. "Antennas" (projections) extended and retracted
 rapidly from the objects, their tips glowed green. One of the objects paced a
 car for 3 hours between Indio, California, and Salome, Arizona. (NICAP
 notes; NICAP report.)
+
 660311
 Ringwood
 NJ
@@ -1220,6 +1340,7 @@ Time not reported. A Catholic Mother Superior reported seeing a very bright
 UFO hovering over the Ringwood iron mines. A distant smaller light flashed
 as if signaling, and the larger object flew away to the west leaving a red glow
 in its wake. (NICAP notes.)
+
 660313
 Portsmouth
 NH
@@ -1227,6 +1348,7 @@ NH
 Time not available. A reporter and his family saw an egg-shaped object about
 150 feet over power lines. TV and house lights dimmed (EM effects), and a
 vibration was felt. (New Hampshire NICAP Subcommittee report.)
+
 660314
 Southport
 CT
@@ -1239,11 +1361,13 @@ flat bottom, and red and white flashing lights, descended abruptly in front of
 the witness's car, and hovered inches off the road. The driver slammed on the
 brakes, and the object took off. The object was so large that it overlapped the
 road. (NICAP report, investigation by John Fuller).
+
 660314
 Dexter and Hillsdale
 MI
 2
 Landing, structured object, multiple witnesses
+
 660315
 Youngstown
 OH
@@ -1252,6 +1376,7 @@ Time not reported. A police officer and other witnesses saw a metallic-
 appearing circular object with blue lights in apparent portholes along its side.
 The UFO stopped overhead, trailing two exhaust flames, then shot away to the
 northwest. (NICAP notes.)
+
 660316
 Eliot
 ME
@@ -1262,12 +1387,14 @@ close range for 10-15 minutes. The UFO emitted a high-pitched "beep" every
 (animal reactions), and ran toward the object, which gradually | disappeared
 behind trees to the southeast. (New Hampshire NICAP Subcommittee s
 report.)
+
 660317
 Milan
 MI
 2
 BBU
 Object w/colored lights spinning came within 80 ft of the patrol car
+
 660319
 Big Rapids
 MI
@@ -1276,6 +1403,7 @@ MI
 rectangular windows, and with a surrounding blue-white haze. Lights on the
 bottom (body lights) flicked on and off one at a time. A light beam shone into
 the house. (Keyhoe & Lore, 1969a, p. 46)
+
 660319
 LaPorte
 In
@@ -1286,6 +1414,7 @@ reflected from the hood of the car. (NICAP notes.)
 11/30/12
 Category 02 - Close Encounters: Objects within 500 feet of the witness
 Page 11 of 105
+
 660319-20
 Freeport
 TX
@@ -1299,6 +1428,7 @@ hazy appearance in the interior. After a while the object slowly rose about
 bright lights shot up from the ground and disappeared within seconds. An
 extensive power failure occurred in Freeport about 2 hours earlier (11:10 p.m.)
 (NICAP report)
+
 660320-21
 Exeter
 NH
@@ -1309,12 +1439,14 @@ over power lines, bobbed around and rocked in a pendulum motion. Through
 binoculars, a dome-like area was visible on top. The object finally ascended to
 the east, moved out over the ocean and disappeared. (Fuller, 1966;
 Massachusetts NICAP Subcommittee report.)
+
 660320
 Dexter
 MI
 2
 BBU
 hovering object over swamp about 1,500 ft away car-sized
+
 660322-23
 Key West
 FL
@@ -1323,24 +1455,28 @@ Night, EST. FL. Several discs with flashing lights around their edges (body
 lights) were reported from an outdoor theater. The objects hovered for 4-5
 seconds, then shot away northward out of sight in about 1 second. (NICAP
 notes.)
+
 660322
 Houston
 TX
 2
 10262
 white flashing lights light up witness' apartment
+
 660323
 Temple
 OK
 2
 10270
 road blocked by a wingless aircraft, perch fish-shaped
+
 660323
 Bangor
 ME
 2
 Landed ellipse with body lights, within 50 ft., humming sound. Report in
 NICAP files. (E,L) car. Section II
+
 660323
 Crown Point
 NY
@@ -1349,6 +1485,7 @@ NY
 underside was observed hovering above a neighbor's house. The witness
 called out another neighbor to see the object, which finally shot upwards out
 of sight. (NICAP report.)
+
 660324
 Ypsilanti-Hillsdale
 MI
@@ -1357,12 +1494,14 @@ Time not reported. A train crew watched a UFO pace their train, pull ahead,
 hover, and climb (maneuver). The Civil Defense director was notified, and
 also saw the object. Together with other witnesses he watched a "docking"
 operation as a second UFO linked with the first. (NICAP notes.)
+
 660324
 Holland
 MI
 2
 Time not reported. A car was buzzed by a glowing circular object with red and
 white body lights at an estimated 150-200 feet altitude. (NICAP notes.)
+
 660324
 China Grove
 NC
@@ -1371,12 +1510,14 @@ NC
 about 200 feet above a house. Witnesses were attracted to it by a "weird"
 humming sound. Several other North Carolina sightings were reported on the
 same date. (NICAP notes.)
+
 660324
 Sheboygan
 WI
 2
 BBU
 a glowing bowl-shaped object on the road hovering
+
 660325
 Upper Sandusky
 OK
@@ -1384,9 +1525,9 @@ OK
 1:00 a.m. EST. A top-shaped object with bright body lights visible on its outer
 edge was seen hovering about 25 feet over woods, point downward, by a farm
 couple for about an hour. (Associated Press story, few details.)
-11/30/12
-Category 02 - Close Encounters: Objects within 500 feet of the witness
-Page 12 of 105
+
+#### Page 12 of 105
+
 660326
 Ann Arbor
 MI
@@ -1394,6 +1535,7 @@ MI
 Time not reported. Engineers and technicians watched a glowing red disc
 maneuver, descend to about 10 feet, and fly parallel with the road for several
 moments. (U.F.O. Investigator, Vol. Ill, No. 7, Mar.-Apr. 1966, p. 4.)
+
 660327
 Loraine
 OH
@@ -1402,6 +1544,7 @@ OH
 brightly lit windows on the upper surface. The object hovered, dimmed, shot
 eastward, returned, got brighter again, then sped away to the west. (NICAP
 notes.)
+
 660328
 Niles
 MI
@@ -1410,6 +1553,7 @@ Early a.m. EST. A truck driver reported that an unidentified aerial object with
 red, green, and white body lights had paced his truck. When he blinked his
 headlights, the UFO blinked in apparent response (light reaction), veered away
 and disappeared. (NICAP notes.)
+
 660328
 Wilmington
 DE
@@ -1417,12 +1561,14 @@ DE
 11:30 p.m. EST. Two witnesses in separate locations independently reported
 watching a hovering object that was flashing brilliant lights. The object, which
 made a humming sound, gyrated around erratically. (NICAP notes.)
+
 660328
 Fayetteville
 TN
 2
 BBU
 large lighted object 3 ft above the road on a hilltop
+
 660329
 Haverhill-Merrimac
 MA
@@ -1433,6 +1579,7 @@ pulsating luminous white object moving back and forth. Its color changing
 from white to red to green to blue, and back to white. The object, circled,
 hovered, and then sped away leaving a short bluish tail, disappearing in an
 estimated 3 seconds. (Fowler, 1974, p. 336.)
+
 660329
 Hamilton, Ontario
 CAN
@@ -1448,6 +1595,7 @@ hand and questioned him thoroughly before reporting the incident to
 authorities. His first-degree burn was treated at a hospital and healed normally.
 (Keyhoe & Lore, 1969b, pp. 4-5; Bondarchuk, pp. 45-46, from the Hamilton
 Spectator, Apr. 2, 1966.)
+
 660329
 London, Ontario
 CAN
@@ -1458,9 +1606,9 @@ Westminster Hospital for about 5 minutes. The object then flipped on edge,
 blue flame was emitted from the protuberances, and it rose into the clouds
 leaving a comet-like trail. An independent witness confirmed the sighting.
 (Flying Saucer Review, Vol. 12, No. 4, July-August 1966, P. 31.)
-11/30/12
-Category 02 - Close Encounters: Objects within 500 feet of the witness
-Page 13 of 105
+
+#### Page 13 of 105
+
 660330
 Rehoboth
 MA
@@ -1480,18 +1628,21 @@ TX
 Time not reported. An oblong object estimated to be 85-100 feet long, with
 lights at top and bottom (body lights), landed near a highway, then took off
 about 5 minutes later. (NICAP notes; United Press International story.)
+
 660330
 Lexisburg (10 miles N of)
 IN
 2
 BBU
 family saw an oval object crossing the road as they were driving
+
 660401
 Tangier (5 miles S of)
 OK
 2
 BBU
 green object wider than the road flying N at very high speed
+
 660403
 Franklin
 NJ
@@ -1500,6 +1651,7 @@ Time not reported. A disc-shaped object with three portholes hovered near a
 radio transmitter tower, seen by the station owner and his wife after hearing a
 deep rumbling noise. The object appeared to be "twice the size of a jet fighter
 plane." (Brief United Press International story.)
+
 660403
 Burlington, Ontario
 CAN
@@ -1507,30 +1659,35 @@ CAN
 10:15 p.m. EST. A domed UFO emitting a yellow glow hovered about 75 feet
 above Bronte Gorge, followed a car, then sped up and disappeared to the
 northeast. (NICAP report form.)
+
 660404
 Liberal
 KS
 2
 Time not reported. A blue-green sphere hovered at low altitude, ascended and
 departed to the southwest. (NICAP notes.)
+
 660404
 Hague (<1 mile SE of)
 FL
 2
 BBU
 elongated object on the ground, 6 ft long, 2 ft high, with 6 openings
+
 660405
 Kittery
 ME
 2
 BBU
 4 people saw a landed object through binoculars
+
 660405
 Alto
 TN
 2
 10384
 Object 100 ft long oval with a dark top appeared cone-shaped
+
 660406
 Selkirk
 NY
@@ -1538,6 +1695,7 @@ NY
 Time not reported. A huge grayish-white egg-shaped object with body lights
 and portholes hovered above trees, rocking back and forth. Finally it
 accelerated and sped away leaving a trail. (NICAP notes.)
+
 660407
 Beulah
 MI
@@ -1545,6 +1703,7 @@ MI
 Time not reported. A cigar-shaped object with red and green body lights flew
 ahead of a car, circled back emitting sound (unspecified), and settled down
 behind a ridge. (NICAP notes.)
+
 660407
 Lincoln
 NE
@@ -1554,6 +1713,7 @@ constellation of lights, including a large white "beacon" with 4-5 bright red
 lights, hovering at low altitude (estimated to be about 400 feet) for about 7
 minutes during heavy rain. The object(s) suddenly sped away at "fantastic
 speed." (NICAP report.)
+
 660409
 Westport
 MA
@@ -1561,12 +1721,14 @@ MA
 Time not reported. An unidentified object approached a car from behind,
 hovered over it, moved ahead, and ascended vertically out of sight. (NICAP
 notes.)
+
 660416
 Portage County
 OH
 2
 BBU
 various officers chased 30-45 ft metallic object from Ohio to PA
+
 660416
 Sherborn
 MA
@@ -1574,9 +1736,9 @@ MA
 7:55 p.m. EST. An elongated elliptical object with bright red light on each end
 and blue lights along its perimeter was seen hovering off Route 16. [Compare
 to April 12, Brockton, Mass., sighting.] (Fowler, 1974, p. 337.)
-11/30/12
-Category 02 - Close Encounters: Objects within 500 feet of the witness
-Page 14 of 105
+
+#### Page 14 of 105
+
 660417
 Peabody
 MA
@@ -1587,6 +1749,7 @@ top, and red, green, blue, and white flashing body lights, was seen flying in
 circular and zig-zag patterns. The object suddenly darted away at high speed
 and disappeared. One UFO hovered over a school, then moved away rapidly
 with up and down oscillatory motion. (Fowler 1974, p. 338.)
+
 660417
 Wakefield
 MA
@@ -1595,12 +1758,14 @@ MA
 oval object making a humming sound. It bobbed up and down rapidly and
 emitted white, red, and blue light beams as it descended to low level above
 Lake Quannapowitt. (Fowler 1974, p. 338.)
+
 660417
 Millersville
 TX
 2
 BBU
 man in car saw an sun-reflecting oval, car-sized object follow him
+
 660419
 Sharon
 MA
@@ -1610,6 +1775,7 @@ oval or egg-shaped obiect with a glowing rim that looked like lighted
 windows, and a steady red light on each end. The object hovered, then
 disappeared when an aircraft approached (aircraft avoidance), reappearing
 after it left. (Fowler 1974, pp. 128-130, 340; NICAP report.)
+
 660419
 Peabody
 MA
@@ -1619,6 +1785,7 @@ witnesses reported an oval object with red, green, f and white body lights,
 oscillating up and down when in motion. The object appeared to land in a
 field. Later two witnesses approached the field and saw unidentified lights rise
 and fly away. (Fowler, 1974, p. 339.)
+
 660419
 Hartford
 Ct
@@ -1626,6 +1793,7 @@ Ct
 8:00 p.m. EST. Two oval objects with red and green body lights hovered
 directly over the Rock Hill Veterans Home and Hospital. (Fowler 1974, p.
 339.)
+
 660419
 Bellingham
 Ct
@@ -1635,6 +1803,7 @@ elongated elliptical object with bright red lights on each end flew low,
 hovered, and made a hissing sound when moving. A separate report was
 received of a "piercing, humming object" two hours earlier at Stoughton.
 (Massachusetts NICAP Subcommittee report; Fowler 1974, p. 339)
+
 660422
 Halifax
 MA
@@ -1642,6 +1811,7 @@ MA
 Time not reported. About 60 miles south of Beverly, three women saw a round
 object with colored blinking body lights pace above and ahead of heir car. A
 low humming sound was heard. (NICAP report form.)
+
 660422
 Springfield
 MA
@@ -1649,6 +1819,7 @@ MA
 Time not reported. About 110 miles west-southwest of Beverly, a teacher and
 a boy saw a dome-shaped object with three lights on its underside hover, then
 accelerate away. (NICAP report form.)
+
 660422
 Alliance
 OH
@@ -1658,9 +1829,9 @@ rotating red lights around the rim approached a car within about 40 feet, and
 hovered. The frightened witnesses fled at high speed, and the UFO apparently
 followed. The object was finally seen speeding away to the northeast. (Keyhoe
 & Lore, 1969a, p. 8; report by Walter N. Webb.)
-11/30/12
-Category 02 - Close Encounters: Objects within 500 feet of the witness
-Page 15 of 105
+
+#### Page 15 of 105
+
 660422
 Wenham
 MA
@@ -1669,12 +1840,14 @@ MA
 approach to within 600 feet at about 100 feet altitude. The object made a right
 angle turn and moved out of sight behind trees. (Fowler 1974, p. 340.) [Note:
 There are two towns named Wenham, one north and one south of Boston.]
+
 660423
 Warren
 OH
 2
 Time not reported. A round white object approached and followed a car.
 (NICAP notes.)
+
 660423
 Randolph
 MA
@@ -1682,12 +1855,14 @@ MA
 8:40 p.m. EDT. Police and others in a rural lake area sighted an "elongated
 egg shaped" (elliptical) object with white lights around its perimeter, colored
 flashing lights on its underside. (Fowler 1974, p. 340.)
+
 660424
 Ashby
 MA
 2
 BBU
 silent object with a bright blue light on top dive within 100 ft of a car
+
 660423-24
 Dorchester
 MA
@@ -1701,6 +1876,7 @@ family's apartment building and maneuvered between it and the adjacent
 building, emitting a humming sound. It hovered again briefly at the end of the
 alley, then moved away erratically to the east and disappeared. The same or an
 identical object was seen again several hours
+
 660424
 Johnson City
 TX
@@ -1712,12 +1888,14 @@ daughter heard a fluttering sound, then they saw a disc-like object (estimated
 pulsated around its rim. The UFO gradually accelerated and moved away to
 the southwest. (NICAP report form; U.F.O. Investigator, Vol. Ill, No. 8, May-
 June 1966, p. 8 ).
+
 660426
 Follansbee
 WV
 2
 BBU
 silent 30 ft object shaped like 2 bowls, at 100 ft altitude ahead of a car
+
 660429
 Paraguay, Ascuncion
 Argentina
@@ -1726,6 +1904,7 @@ Argentina
 Argentina, saw a gray object like one plate inverted on top of the other (disc)
 with portholes, and emitting an apparent exhaust. (Weinstein, 1999, p. 34,
 from Lumieres Dan La Nuit, No. 125)
+
 660501
 Watertown
 MA
@@ -1733,6 +1912,7 @@ MA
 10:00 p.m. EDT. Four witnesses saw an oval object with bright rotating red,
 green, and white lights pass over the Watertown Arsenal. (Fowler 1974, p.
 341)
+
 660504
 Cardington
 OH
@@ -1741,9 +1921,9 @@ Time not reported. About 10 people watched a saucer-shaped glowing object
 hover above the trees for 30 minutes. Smaller lights, occasionally flashing,
 darted to and from it. The object departed when an aircraft approached the
 area (aircraft avoidance). (NICAP notes.)
-11/30/12
-Category 02 - Close Encounters: Objects within 500 feet of the witness
-Page 16 of 105
+
+#### Page 16 of 105
+
 660506
 Carnestown
 FL
@@ -1762,6 +1942,7 @@ FL
 University campus police saw a round glowing object with outer ring of red
 lights, and a white flashing light in the center, hover above the athletic field,
 then fly away. (NICAP notes from newspaper story.)
+
 660524
 Temple City
 CA
@@ -1777,6 +1958,7 @@ appeared to be a row of louvers and an antenna-like projection. After several
 minutes the object climbed to the northeast, observed as it moved away by
 employees of a nearby restaurant who were alerted by the witness. (Los
 Angeles NICAP Subcommittee report.)
+
 660601
 Lake Ontario
 CAN
@@ -1789,6 +1971,7 @@ reflection on the lake surface. Around the dome was a row of bright yellow
 lights, and blue-green lights were visible around the lower perimeter (body
 lights). After hovering briefly, the UFO took off at high speed and quickly
 disappeared. (U.F.O. Investigator, Vol. Ill, No. 9, Aug.-Sept. 1966, p. 5)
+
 660602
 Massillon
 OH
@@ -1796,6 +1979,7 @@ OH
 Day. A moving luminous cigar-shaped object stopped, then discharged three
 smaller objects which rose, separated, and flew off in different directions. The
 parent object then went straight up at terrific speed. (NICAP notes.)
+
 660608
 Castlegar, British Columbia
 CAN
@@ -1806,6 +1990,7 @@ a parallel path. The object was emitting a bluish glow, and two light beams
 extended from it, one pointing upward and the other downward. No sound was
 heard. (Flying Saucer Review, Vol. 12, No. 6, Nov.-Dec. 1966, p. iii; from the
 Castlegar News.)
+
 660611
 Westport
 MA
