@@ -10385,33 +10385,18 @@ PA
 8:30 PM. A disc-shaped object with an amber light on the bottom and red
 lights in a circle on top of the disc buzzed a witness driving in a car
 
-841024
-Park Rapids
-MN
-2
-Diamond-shaped object, blue & white. One humanoid four feet tall, large
-head, large eyes, slender arms. Occupant outside of hovering object.
-Approached farm. Stood in light for ten minutes, returned to craft and
-departed. (Humrep, Molon)
+84 October 24 - Park Rapids, Minnesota. Diamond-shaped object, blue & white. One humanoid four feet tall, large
+head, large eyes, slender arms. Occupant outside of hovering object. Approached farm. Stood in light for ten 
+minutes, returned to craft and departed. (Humrep, Molon)</p>
 
 #### Page 105 of 105
 
-841126
-Gloucester
-MA
-2
-6:15 PM. A UFO seen by Mr. & Mrs. Hoel in Gloucester, Massachusetts
-seemed to respond to their comments while flying over Magnolia Bay. The
-dark triangular object, 150 feet wide, with a canopy underneath, flew at 125
-feet altitude and passed over Magnolia Bay and surrounding trees
+84 November 26 6:15 p.m. - Gloucester, Massachusetts. A UFO seen by Mr. & Mrs. Hoel in Gloucester, Massachusetts
+seemed to respond to their comments while flying over Magnolia Bay. The dark triangular object, 150 feet wide, 
+with a canopy underneath, flew at 125 feet altitude and passed over Magnolia Bay and surrounding trees.</p>
 
-841230
-Martinsburg
-WV
-2
-10:00 PM. A 30 foot long X-shaped object paced a car for 20 minutes along a
-highway in Martinsburg, West Virginia. There were five lights on the bottom
-of the craft and it made a humming noise.
+84 Dember 30 10:00 p.m. - Martinsburg, West Virginia. A 30 foot long X-shaped object paced a car for 20 minutes along a
+highway in Martinsburg, West Virginia. There were five lights on the bottom of the craft and it made a humming noise.</p>
 
 85 September 15 - Bagshot Heath, Surrey, United Kingdom. Disc-shaped object hovered ahead of car; second object paced 
 alongside car, bright illumination of area (section IX)
@@ -10420,31 +10405,23 @@ alongside car, bright illumination of area (section IX)
 Pittsburgh, silver-gray disc with body lights hovered, mist formed around it. Object tilted, moved out of 
 sight (section IX).</p>
 
-86  April 26 - Chernobyl, Ukraine, USSR. Object Observed After Chernobyl Explosion.</p>
-
 87 February 07 - Potters Mills, Pennsylvania. Motorists encountered hovering large oval object, lights around perimeter,
 terrain brightly illuminated (section IX).</p>
 
 87 July 22 - Hawesville, Kentucky. The Hawesville Encounter.</p>
 
-87 September 01 - Bangor, Waine. Ellipse with windows beamed light down on children in playground, two
+87 September 01 - Bangor, Maine. Ellipse with windows beamed light down on children in playground, two
 humanoids visible in object (section XII).</p>
 
 88 January 19 - Launceston, Arkansas. Glowing red object followed car, moved up and down as if following contours
 of local terrain (section X).</p>
 
-88 March 04 - Eastlake, Ohio. Eastlake Close Encounter.</p>
-
 89 August 31 - Butler Township, Pennsylvania. Luminous mushroom-shaped object hovered over field, two smaller objects
 with red lights emerged, operated independently, departed at high speed (section X).</p>
 
-890921-1007
-Voronezh
-Russia
-2
-UFO sighting concentration in vicinity. Four landings and three different kinds
-of entities reported (sections VIII, XII); geodesic engineer saw maneuvering
-airship-like object September 24 (section IV).
+89 September 21 thru October 07 - Voronezh, Russia. UFO sighting concentration in vicinity. Four landings and three 
+different kinds of entities reported (sections VIII, XII); geodesic engineer saw maneuvering airship-like object 
+September 24 (section IV).</p>
 
 89 November 29 - Eupen, Belgium. Police patrol car illuminated by brilliant light beam, hovering dark triangular
 object, humming noise, alternately moved and hovered (section I).</p>
