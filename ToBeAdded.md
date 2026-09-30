@@ -5,6 +5,7 @@
 #### PAGE 1 OF 105
 
 Date - City  - State or Country - Cat - Code - Rating - BB - NC flag -  LC Description
+
 18680700 Copiago, Chile 2 - A strange "aerial construction" bearing lights and making engine noises flew
 low over this town. Local people also described it as a giant bird covered with large scales producing a 
 metallic noise.
@@ -1989,289 +1990,176 @@ extended from it, one pointing upward and the other downward. No sound was
 heard. (Flying Saucer Review, Vol. 12, No. 6, Nov.-Dec. 1966, p. iii; from the
 Castlegar News.)
 
-660611
-Westport
-MA
-2
-3:45 a.m. EDT. A disc shaped like two plates one on top of the other, with a
-dome on top, white, yellow, blue, and green flashing lights around the
-circumference (body lights), buzzed over a car and hovered ahead over the
-road. (Fowler, 1974, p. 341; Boston Traveler, June 13, 1966, quoted in Flying
-Saucer Review, Vol. 12, No. 5, Sept.-Oct. 1966, p. 30.
+660611 3:45 a.m. - Westport, Massachusetts. A disc shaped like two plates one on top of the other, with a dome on top, 
+white, yellow, blue, and green flashing lights around the circumference (body lights), buzzed over a car and hovered 
+ahead over the road. (Fowler, 1974, p. 341; Boston Traveler, June 13, 1966, quoted in Flying Saucer Review, Vol. 12, 
+No. 5, Sept.-Oct. 1966, p. 30.</p>
 
 #### PAGE 18 OF 105
 
-660613 Milan, Michigan. cops saw object on 3/17 and another on the ground on 6/13
+660613 - Milan, Michigan. cops saw object on 3/17 and another on the ground on 6/13</p>
 
-660616 Mt. Sunapee, New Hampshire.  Time not reported. A woman saw a large glowing obiect hovering near
+660616 - Mt. Sunapee, New Hampshire.  Time not reported. A woman saw a large glowing obiect hovering near
 telephone lines. An articulated glowing pink to red-colored rod extended to the wires, withdrew, and then 
 the object sped away over the mountains. (New Hampshire NICAP Subcommittee report.) The time probably is 
-included in the NICAP file report.)
+included in the NICAP file report.)</p>
 
-660623 Hamburg, New York. an intense red light lit the ground near a house
+660623 - Hamburg, New York. an intense red light lit the ground near a house.</p>
 
-660718 Baytown, Texas. 9:00 a.m. CDT. Service station personnel saw a white object shaped like two saucers 
+660718 Baytown, Texas. 9:00 a.m. - Service station personnel saw a white object shaped like two saucers 
 face to face (disc) with a row of square windows in between. The object was hovering above a store about 
 100 yards distant, then it began moving, rapidly accelerated and sped away. (McDonald, 1968a, pp. 57-58;
-Houston Post, Oct. 8, 1966.)
+Houston Post, Oct. 8, 1966.)</p>
 
-660720 10:30 p.m. EDT- Jaffrey, New Hampshire. An elliptical object with two rows of body lights passed over
+660720 10:30 p.m. - Jaffrey, New Hampshire. An elliptical object with two rows of body lights passed over
 a religious center. As it progressed, the lights changed color from white to red to orange to yellow to green 
-and back to white. (Fowler 1974, p. 341.)
+and back to white. (Fowler 1974, p. 341.)</p>
 
 660722 11:25 P.M. - Fremont, Indiana. While driving his son home from the railway station, a realtor (retired 
 WWII Navy officer) and his son saw an illuminated, 25-foot diameter disc with portholes on its lower convex 
 surface. The object descended low over the car and hovered above it. When two other cars approached, the 
 object extinguished its lights, then shot straight up into the sky leaving a trail of bluish light. (Hynek, 
-1972, pp. 95-96, 238; Ridge, 1994, pp. 12-13; NICAP notes.)
+1972, pp. 95-96, 238; Ridge, 1994, pp. 12-13; NICAP notes.)</p>
 
-660801 12:30 a.m. ETD - Prince George's County, Maryland. Citizens and police in College Park, Lanham, Bowie, Seat 
+660801 12:30 a.m. - Prince George's County, Maryland. Citizens and police in College Park, Lanham, Bowie, Seat 
 Pleasant, and elsewhere around the region saw maneuvering, fast-moving lighted objects. When a police officer 
 approached a hovering object that had pulsating red, green, and white lights, it began a series of maneuvers, 
 descended almost to the ground, then sped away "like a shot." Before it sped away, the object emitted a strange 
 multi-colored light beam that moved rapidly to the ground, also observed by another officer. Andrews AFB denied
 to a County police dispatcher that they had any unknown objects on radar, but the dispatcher said a control tower 
 operator had acknowledged seeing a fast-moving lighted object, and he later learned that Andrews did have a UFO 
-on its radar but would not admit it officially. (U.F.O. Investigator, Vol. Ill, No. 9, Aug. -Sept. 1966, p. 4.)
+on its radar but would not admit it officially. (U.F.O. Investigator, Vol. Ill, No. 9, Aug. -Sept. 1966, p. 4.)</p>
 
-660802 10:30 p.m. LT. - Vancouver, B.C. CANADA. A man saw a disc-shaped object behind his house hovering about 
+660802 10:30 p.m. - Vancouver, B.C. CANADA. A man saw a disc-shaped object behind his house hovering about 
 400-500 feet off the ground. The object made no sound . It was a darker gray than the overcast sky. After about 
 45 seconds it accelerated, displaying twinkling lights, and disappeared. (Flying Saucer Review, Vol. 12, No. 6,
-Nov. -Dec. 1966, p. iii.)
+Nov. -Dec. 1966, p. iii.)</p>
 
-660806 Harlingen, Texas dark obj hover over house and a dwarf in shiny overalls appears.
+660806 - Harlingen, Texas dark obj hover over house and a dwarf in shiny overalls appears.</p>
 
-660818 Oil City, Pennsylvania. Time not reported. A train crew saw a thin elongated (cigar-shaped) object whose 
+660818 - Oil City, Pennsylvania. Time not reported. A train crew saw a thin elongated (cigar-shaped) object whose 
 glow cast a green light over the area (environmental illumination). The glow lasted for about 7 seconds, and then 
-the object shot away and disappeared. (NICAP notes.)
+the object shot away and disappeared. (NICAP notes.)</p>
 
 #### PAGE 19 OF 105
 
-660819 Sault Ste. Marie, Minnesota. Time not reported. A disc like an inverted dinner plate, with red and green
+660819 - Sault Ste. Marie, Minnesota. Time not reported. A disc like an inverted dinner plate, with red and green
 body lights on top and bottom and flashing lights on the circumference, hovered over the Algoma steel plant. The 
 object abruptly took off to the north at high speed, seen over a wide area. (NICAP notes; U.F.O. Investigator, Vol.
-Ill, No. 9, Aug. -Sept. 1966, p. 4.)
+Ill, No. 9, Aug. -Sept. 1966, p. 4.)</p>
 
-660831 8:20 p.m. L.T.- Makklya, Finland. LT. A woman was called by her two daughters to observe from a balcony an 
+660831 8:20 p.m. - Makklya, Finland. LT. A woman was called by her two daughters to observe from a balcony an 
 object shaped like two plates, one inverted on top of the other (disc), flying at an altitude of about 200 meters. 
-(Flying Saucer Review, 12(6), November-December 1966; from the He/s/ng/a Sanomet, Sept. 1, 1966.)
+(Flying Saucer Review, 12(6), November-December 1966; from the He/s/ng/a Sanomet, Sept. 1, 1966.)</p>
 
-660905 unknown location, Texas. peculiar light phenomenon and a small figure that entered a bedroom
+660905 - unknown location, Texas. peculiar light phenomenon and a small figure that entered a bedroom.</p>
 
-660908 11:50 p.m. EDT - Marquette, Minnesota. A legal secretary saw a yellow-white disc shaped like a soup 
+660908 11:50 p.m. - Marquette, Minnesota. A legal secretary saw a yellow-white disc shaped like a soup 
 plate that made a soft swishing sound as it flew across the highway, climbed, leveled off, and flew away. 
-(NICAP report form.)
+(NICAP report form.)</p>
 
-660917 4:45 a.m. EDT - Cranes Beach, Ipswich Bay, Massachusetts. A glowing cigar-shaped object oriented vertically, 
+660917 4:45 a.m. - Cranes Beach, Ipswich Bay, Massachusetts. A glowing cigar-shaped object oriented vertically, 
 tilted at times, was observed for about an hour near the edge of the water. (Massachusetts NICAP Subcommittee 
-report; U.F.O. Investigator, Vol. Ill, No. 10, Oct.-Nov. 1966, p. 4; Fowler 1974, p. 341.)
+report; U.F.O. Investigator, Vol. Ill, No. 10, Oct.-Nov. 1966, p. 4; Fowler 1974, p. 341.)</p>
 
-660921 6:30 a.m. LT. - Summerside, Prince Edward Island, CANADA Eight RCAF pilots and crew members observed a bright 
+660921 6:30 a.m. - Summerside, Prince Edward Island, CANADA Eight RCAF pilots and crew members observed a bright 
 circular object flying at high speed and maneuvering. The object stopped abruptly, descended and hovered near the 
-ground for about 20 minutes. It then shot straight up and disappeared.
+ground for about 20 minutes. It then shot straight up and disappeared.</p>
 
-660922
-Deadwood
-SD
-2
-3:00 a.m. CDT. Police from several vantage points saw a large white hovering
-object, changing color to green, red, and back to white. When a spotlight was
-shone on it, the object would black out (light reaction). Two smaller white
-objects operating independently approached and hovered nearby. The large
-object bobbed around and emitted light beams toward the ground, and finally
-sped away. (Sagan & Page, 1972, pp. xxii-xxiii.)
+660922 3:00 a.m. - Deadwood, South Dakota. Police from several vantage points saw a large white hovering object, 
+changing color to green, red, and back to white. When a spotlight was shone on it, the object would black out (light 
+reaction). Two smaller white objects operating independently approached and hovered nearby. The large object bobbed 
+around and emitted light beams toward the ground, and finally sped away. (Sagan & Page, 1972, pp. xxii-xxiii.)</p>
 
-660930
-Anderson
-IN
-2
-2:00 a.m. EDT. Police sighted a white ball of light surrounded by a bluish-
-white pulsating glow (halo effect), sometimes flashing red. The object
-maneuvered, made a sharp turn and flew southwest beneath an overcast,
-hovered over trees, rose and descended. (Indiana NICAP Subcommittee
-report; NICAP report form; police department report).
+660930 2:00 a.m. - Anderson, Indiana. Police sighted a white ball of light surrounded by a bluish-white pulsating 
+glow (halo effect), sometimes flashing red. The object maneuvered, made a sharp turn and flew southwest beneath an 
+overcast, hovered over trees, rose and descended. (Indiana NICAP Subcommittee report; NICAP report form; police 
+department report).</p>
 
-661014
-Newton
-IL
-2
-6:45 p.m. CDT. A yellow-orange disc-shaped object with a blue rim and a row
-of red lights just under the rim was observed at low level, its glow illuminating
-the ground. Static interfered with the telephone, and TV interference also was
-experienced (EM effects) during the sighting. (Keyhoe & Lore, 1969a, p. 45.)
+661014 6:45 p.m. - Newton, Illinois. A yellow-orange disc-shaped object with a blue rim and a row of red lights just 
+under the rim was observed at low level, its glow illuminating the ground. Static interfered with the telephone, and TV 
+interference also was experienced (EM effects) during the sighting. (Keyhoe & Lore, 1969a, p. 45.)</p>
 
-661023
-Randolph Twp
-NJ
-2
-8:45 p.m. EDT. A policeman watched as a bright yellow oval UFO
-approached slowly at low altitude, then sped away when he shone a spotlight
-on it (light reaction.). (NICAP notes, from newspaper story-)
+661023 8:45 p.m. - Randolph Twp, New Jersey. A policeman watched as a bright yellow oval UFO approached slowly 
+at low altitude, then sped away when he shone a spotlight on it (light reaction.). (NICAP notes, from newspaper story-)</p>
 
-661026
-Cold Bay AFS
-AK
-2
-11092
-tower operator saw a white object approach runway
+661026 - Cold Bay AFS, Alaska 11092 tower operator saw a white object approach runway.</p>
 
 #### Page 20 of 105
 
-661028
-Lawrence
-MD
-2
-1:00 a.m. EDT. A newspaper editor responding to phone calls saw a glowing
-white, cigar-shaped object hovering at a 45-degree angle over water towers. A
-closer witness saw bright white lights along its side. (Fowler 1974, p. 342.)
+661028 1:00 a.m. - Lawrence, Maryland. A newspaper editor responding to phone calls saw a glowing white, cigar-shaped 
+object hovering at a 45-degree angle over water towers. A closer witness saw bright white lights along its side. (Fowler 
+1974, p. 342.)</p>
 
-661112
-Fort Ontario
-NY
-2
-9:35 p.m. EST. A number of witnesses including a former Navy radarman
-reported a dark domed disc with a row of orange portholes along the lower
-portion. The object, illuminated by a faint glow, first hovered and then shot
-upwards out of sight. (NICAP report form.)
+661112 9:35 p.m. - Fort Ontario, New York. A number of witnesses including a former Navy radarman reported a dark 
+domed disc with a row of orange portholes along the lower portion. The object, illuminated by a faint glow, first hovered 
+and then shot upwards out of sight. (NICAP report form.)</p>
 
-661113
-Fords
-NJ
-2
-5:35 p.m. EST. Several witnesses including a private pilot saw a very bright,
-round, pulsating orange light that hovered over a school emitting a humming
-sound. (NICAP notes.)
+661113 5:35 p.m. - Fords, New Jersey. Several witnesses including a private pilot saw a very bright, round, pulsating 
+orange light that hovered over a school emitting a humming sound. (NICAP notes.)</p>
 
-661115
-Gaffney
-MA
-2
-7:15 a.m. EST. Two hunters in a boat off the coast saw two cigar-shaped
-objects hovering in a horizontal position over the Beverly Farms area. (Fowler
-1974, p. 342.)
+661115 7:15 a.m. - Gaffney, Massachusetts. Two hunters in a boat off the coast saw two cigar-shaped objects hovering 
+in a horizontal position over the Beverly Farms area. (Fowler 1974, p. 342.)</p>
 
-661118
-McMinnville
-OR
-2
-12:25 a.m. PST. Several witnesses in a car reported an elongated greenish-
-white oval that hovered or moved slowly at low altitude. The driver felt and
-heard a deep vibration. (NICAP report.)
+661118 12:25 a.m. - McMinnville, Oregon. Several witnesses in a car reported an elongated greenish-white oval that 
+hovered or moved slowly at low altitude. The driver felt and heard a deep vibration. (NICAP report.)</p>
 
-661118
-Hawkinsville
-GA
-2
-9:30 p.m. EST. Several witnesses including the chief of police saw a dark gray
-or black disc, with red, blue, green, and white body lights around its perimeter,
-hovering silently. It had a length to width ratio of 4:1. After a while the object
-started to move away, and receded into the distance where six more objects
-were visible (rendezvous). After 5-10 minutes, the objects suddenly
-disappeared. (Hitt, 1999.)
+661118 9:30 p.m. - Hawkinsville, Georgia. Several witnesses including the chief of police saw a dark gray or black 
+disc, with red, blue, green, and white body lights around its perimeter, hovering silently. It had a length to width 
+ratio of 4:1. After a while the object started to move away, and receded into the distance where six more objects were 
+visible (rendezvous). After 5-10 minutes, the objects suddenly disappeared. (Hitt, 1999.)</p>
 
-661201
-Middleboro
-MA
-2
-6:35 p.m. EST. An obiect with a curved surface, apparently oval, with two
-large bright red pulsating lights, dived in front of a car and hovered over
-woods just off the road. (Fowler 1974, p. 342.)
+661201 6:35 p.m. - Middleboro, Massachusetts. An obiect with a curved surface, apparently oval, with two large bright 
+red pulsating lights, dived in front of a car and hovered over woods just off the road. (Fowler 1974, p. 342.)</p>
 
-661202
-Lake Sarah
-MN
-2
-2:00 a.m. CST. A farmer saw a disc-shaped object an estimated 40 feet in
-diameter hovering over a corn field, making a noise like whirling wind. The
-object moved away, returned and hovered again, then lifted straight up and
-moved away to the east emitting a red glow. (NICAP notes based on
-newspaper story.)
+661202 2:00 a.m. - Lake Sarah, Minnesota. A farmer saw a disc-shaped object an estimated 40 feet in diameter hovering 
+over a corn field, making a noise like whirling wind. The object moved away, returned and hovered again, then lifted 
+straight up and moved away to the east emitting a red glow. (NICAP notes based on newspaper story.)</p>
 
-661213
-Rowley
-MA
-2
-1:00 a.m. EST. A glowing red-orange oval object with a halo of light around it
-descended and approached the witnesses, t then disappeared behind an
-embankment. (Fowler 1974, p. 343.)
+661213 1:00 a.m. - Rowley, Massachusetts. A glowing red-orange oval object with a halo of light around it descended 
+and approached the witnesses, t then disappeared behind an embankment. (Fowler 1974, p. 343.)</p>
 
-661230
-Haynesville
-LA
-2
-BBU
-bright, pulsating glow, changing from orange to white, in the woods
+661230 - Haynesville, Louisiana. bright, pulsating glow, changing from orange to white, in the woods.</p>
 
-1/0/1967 Galesburg, Illionois. One Knoxville farmer and several motorists reported that the UFO "was
+1967 January - Galesburg, Illionois. One Knoxville farmer and several motorists reported that the UFO "was
 round, big as a house, had no flying lights, but let off a greenish-blue light." Vibrations from the 
 craft could be felt in the farmer's truck as it followed him along the Victoria blacktop about 7:00 PM. 
 (Skylook 41, p. 13).
 
-670105 Winsted, Minnesota. 75 ft object landed on road, man dressed in blue overalls exited craft
+670105 - Winsted, Minnesota. 75 ft object landed on road, man dressed in blue overalls exited craft
 
-670106 11:45 p.m. EST- Harwich, Massachussetts. A man and his daughter saw a thick, double-convex (lens-) 
+670106 11:45 p.m. - Harwich, Massachussetts. A man and his daughter saw a thick, double-convex (lens-) 
 shaped disc with a dark upper surface, trapezoidal sections of fluorescent light on the lower portion, and 
 pulsating colored lights (body lights). The obiect responded to house spotlights by blinking in the same 
 sequence (light reaction). (Air Force report form in Colorado Project files.)
 
 #### Page 21 of 105
 
-670110
-Bruceville
-IN
-2
-8:30 p.m. EST. A woman and her son, 16, were driving home when they saw
-an elliptical dull gray object glowing a bluish color around the rim. It was
-estimated to be 25 feet over the car, 30 feet in diameter and 8 feet thick. The
-object hovered, moved slowly, then accelerated away. It displayed a disc
-shape when it banked slightly, and it had several dim lights (body lights) on its
-rim. (Ridge, 1994, p. 19. from APRO Bulletin No. 15.)
+670110 8:30 p.m. - Bruceville, Indiana. A woman and her son, 16, were driving home when they saw an elliptical 
+dull gray object glowing a bluish color around the rim. It was estimated to be 25 feet over the car, 30 feet in 
+diameter and 8 feet thick. The object hovered, moved slowly, then accelerated away. It displayed a disc shape when 
+it banked slightly, and it had several dim lights (body lights) on its rim. (Ridge, 1994, p. 19. from APRO Bulletin 
+No. 15.)</p>
 
-670110
-Bangor
-ME
-2
-10:50 p.m. EST. An electronics technician heard an intermittent sound that
-changed in pitch, then saw over the treetops two brilliant lights. Each light was
-dome-shaped and had a ring at the outer circumference. (Narrative from
-witness in Donald E. Keyhoe Archives files.)
+670110 10:50 p.m. - Bangor, Maine. An electronics technician heard an intermittent sound that changed in pitch, 
+then saw over the treetops two brilliant lights. Each light was dome-shaped and had a ring at the outer circumference. 
+(Narrative from witness in Donald E. Keyhoe Archives files.)</p>
 
-1/15?/1967
-Boxford
-MA
-2
-3:00 a.m. EST. A witness saw a bright red object that looked like an upside
-down saucer (disc) with a white glowing rim. The object approached and
-circled the witness's home before moving away and disappearing. (Fowler,
-1974, p. 343.).
+1/15?/1967 3:00 a.m. - Boxford, Massachusetts. A witness saw a bright red object that looked like an upside down saucer 
+(disc) with a white glowing rim. The object approached and circled the witness's home before moving away and disappearing. 
+(Fowler, 1974, p. 343.).</p>
 
-670115
-Granville
-MA
-2
-5:45 p.m. EST. A woman and her two nieces saw a domed disc with white
-light emanating from portholes in its base. The object was seen three times
-within 20 minutes before disappearing. (Hartford Courant, Conn., 1/16/67;
-Gillmor, 1969, case 13; Keyhoe and Lore, 1969a, p. 45; U.F.O Investigator,
-Vol. Ill, No. 11, Jan. -Feb., 1967, p. 4.)
+670115 5:45 p.m. - Granville, Massachusetts. A woman and her two nieces saw a domed disc with white light emanating from 
+portholes in its base. The object was seen three times within 20 minutes before disappearing. (Hartford Courant, Conn., 
+1/16/67; Gillmor, 1969, case 13; Keyhoe and Lore, 1969a, p. 45; U.F.O Investigator, Vol. Ill, No. 11, Jan. -Feb., 1967, 
+p. 4.)</p>
 
-670115
-North Granby
-CN
-2
-Unspecified time. Six miles to the southeast of Granville, MA in North
-Granby, Conn., two women saw a disc-shaped object with a flange around it
-and white beams of light from portholes. The object passed between witnesses
-and a mountain. (Springfield Union, Mass., 2/22/67, copy in Keyhoe
-Archives)
+670115 Unspecified time. - North Granby, Connecticut. Unspecified time. Six miles to the southeast of Granville, MA in 
+North Granby, Conn., two women saw a disc-shaped object with a flange around it and white beams of light from portholes. 
+The object passed between witnesses and a mountain. (Springfield Union, Mass., 2/22/67, copy in Keyhoe Archives)</p>
 
-670115
-Roosevelt
-UT
-2
-6:00 p.m. MST. Two couples saw a yellow glow coming from inside a dome-
-shaped object estimated to be two miles away. The object hovered and moved
-around slowly. (Salisbury, 1974, Case 40, Table 1)
+670115 6:00 p.m. - Roosevelt, Utah. Two couples saw a yellow glow coming from inside a dome-shaped object estimated to 
+be two miles away. The object hovered and moved around slowly. (Salisbury, 1974, Case 40, Table 1)</p>
 
 670116
 Warner
@@ -2282,54 +2170,30 @@ cigar-shaped object with amber windows eventually came toward him on a
 slow and steady course, and he heard a soft purring sound. (New Hampshire
 NICAP Subcommittee report, NICAP files.)
 
-670116
-Warner
-NH
-2
-5:15 p.m. A couple in the same area reported seeing a slow-moving gray
-object with body lights. At 5:30 pm a woman and her daughter saw an object
-that looked like a box kite without paper (presumably rectangular) with two
-bright headlights on the front. The object was moving slowly, and hovering
-soundlessly, but there was a purring sound when it started to move away
-rapidly. All witnesses reported the object to be huge. (U.F.O Investigator, Vol.
-Ill, No. 12, Mar.-Apr., 1967, p. 5.)
+670116 5:15 p.m. - Warner, New Hampshire. A couple in the same area reported seeing a slow-moving gray object with body 
+lights. At 5:30 pm a woman and her daughter saw an object that looked like a box kite without paper (presumably rectangular) 
+with two bright headlights on the front. The object was moving slowly, and hovering soundlessly, but there was a purring 
+sound when it started to move away rapidly. All witnesses reported the object to be huge. (U.F.O Investigator, Vol. Ill, 
+No. 12, Mar.-Apr., 1967, p. 5.)</p>
 
 #### Page 22 of 105
 
-670117
-Freetown
-IN
-2
-Francis Bedel, Jr., (23) of Portland, Indiana, was driving on State Highway
-135, a two-lane blacktop road, north of Freetown, he later reported to State
-Police, when a brilliant glowing white light darted into his field of vision.
-(NICAP files)
+670117 Freetown, Indiana. Francis Bedel, Jr., (23) of Portland, Indiana, was driving on State Highway 135, a two-lane 
+blacktop road, north of Freetown, he later reported to State Police, when a brilliant glowing white light darted into 
+his field of vision. (NICAP files)</p>
 
-670117
-Freetown
-IN
-2
-On the same stretch of highway on the same night, Mr. & Mrs. Phil Patton of
-Freetown, reported to State Police that a brightly lighted disc-shaped craft,
-about 30 feet in diameter, came down alongside their car. (NICAP files)
+670117 Freetown, Indiana. On the same stretch of highway on the same night, Mr. & Mrs. Phil Patton of Freetown, reported 
+to State Police that a brightly lighted disc-shaped craft, about 30 feet in diameter, came down alongside their car. 
+(NICAP files)</p>
 
-670118
-Williamstown
-MA
-2
-12:15 a.m.EST. Four witnesses saw a flash in the sky just before a power
-failure occurred. Then they saw a domed disc with body lights. It was near the
-ground on the opposite bank of the Green River. A red glowing object buzzed
-their car as they drove away. (Air Force report, Project Blue Book files,
-National Archives; Fowler, 1974, p. 343.)
+670118 12:15 a.m. - Williamstown, Massachusetts. Four witnesses saw a flash in the sky just before a power failure occurred. 
+Then they saw a domed disc with body lights. It was near the ground on the opposite bank of the Green River. A red glowing 
+object buzzed their car as they drove away. (Air Force report, Project Blue Book files, National Archives; Fowler, 1974, 
+p. 343.)</p>
 
-670118
-Norton
-MA
-2
-6:30-6:45 a.m. EST. A man saw a cloud-like object with flat bottom, a dome
-on top, and a blue stripe. It hovered over an airport, then accelerated and sped
-away, disappearing in 3 seconds. (Robinson letter, NICAP files.)
+670118 6:30-6:45 a.m. - Norton, Massachusetts. A man saw a cloud-like object with flat bottom, a dome on top, and a blue 
+stripe. It hovered over an airport, then accelerated and sped away, disappearing in 3 seconds. (Robinson letter, NICAP 
+files.)</p>
 
 670118
 Shamokin
