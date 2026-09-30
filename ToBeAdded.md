@@ -1,8 +1,8 @@
-Category 02 - Close Encounters: Objects within 500 feet of the witness (thru November 11, 2012)
+## Category 02 - Close Encounters: Objects within 500 feet of the witness (thru November 11, 2012)
 
-<all previous pages checked and entered - for the most part>
+### <all previous pages checked and entered - for the most part>
 
-PAGE 18
+#### PAGE 18
 
 660613 Milan, Michigan. cops saw object on 3/17 and another on the ground on 6/13
 
