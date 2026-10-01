@@ -269,197 +269,154 @@ illuminating the whole countryside for 30 min.
 1931 January 01 - Cobden, Ontario, CANADA.
 UFO sighted in early morning, had bright light on front which lit up tree-tops,
 flashing lights on rear. Object made sweeping curve, sped up and climbed out
-of sight. (NICAP UFO Evidence, 1964, Hall)
+of sight. (NICAP UFO Evidence, 1964, Hall).
 
-1933 Summer
-Chrysville
-Pennsylvania.
+1933 Summer - Chrysville, Pennsylvania.
 Morning. A man observed a faint violet light in a field between this town and
 Morrestown. Walking to it, he found an ovoid object 3 m in diameter and 2 m
 thick with a circular opening similar to a vault door.
 
-1933 December 30
-Unknown City
-Sweden
-2
-Low-flying aeroplane (Page 7 Ref. 1)
+1933 December 30 - Unknown City, Sweden.
+Low-flying aeroplane (Page 7 Ref. 1).
 
-1934 April 01
-Oslo, Norway.
+1934 April 01 - Oslo, Norway.
 A very large aeroplane with eight propellers (Page 8 Ref. 1)
 
 1937 January 01
 Unknown City, North Carolina.
 30-40 foot in diameter object, no propellers, gun metal color (Page 10-11 Ref. 1)
 
-37 February 11
-Kvalsik, Norway.
+37 February 11 - Kvalsik, Norway.
 Large aeroplane with red and green glowing lights (Page 11, Ref. 1)
 
-1938 July 25
-Guadalaraja, Spain.
+1938 July 25 - Guadalaraja, Spain.
 Soldiers at the Spanish Civil War battlefront were illuminated by a bright
 glow, then saw an oval object about 10-12 meters in diameter shaped like “two
 inverted plates” hovering near the ground. A cylindrical column came down
 from the center and two beings emerged.
 
-1938 Summer
-Unknown City, Massachusetts.
+1938 Summer - Unknown City, Massachusetts.
 Silvery object with rectangular portholes (Page 12 Ref. 1)
 
-1939 November 13
-Brockworth
-United Kingdom
-2
+1939 November 13 - Brockworth, United Kingdom.
 Motorist heard high-pitched humming sound, saw a gray bell-shaped object
 hovering over a field, dark window-like patches visible on its side. (Ref. 3;
 Jenny Randles & Peter Warrington, Sience & The UFOs, 1985, p. 3.)
 
-42 August 29
-Columbus, Mississippi.
-2
+42 August 29 - Columbus, Mississippi.
 Control tower operator at Army Air Base saw two round reddish objects hover
 over field. [NICAP UFO Evidence, 1964, Hall, III]
 
-43 September 00
-Oncativo, Argentina.
+43 September - Oncativo, Argentina.
 4:00 a.m. Navarro Ocampo, driving between Rosario and Cordoba, saw a
 large, saucer-shaped object on the ground 500 m to the left of the road. It
 glowed with a bluish-green light, made a whistling sound, rose to 100 m
 altitude, then left at fantastic speed. A strange metal block is said to have been
 found at the spot. (Magonia #50, GEPA Dec., 68)
 
-43 November 00
-Escondido, California.
+43 November - Escondido, California.
 On a dark moonless night a family heard a soft humming sound and saw a disc
 with dome and square windows hovering about 15 feet above the roof of their
 house. Human-like silhouettes were visible through the windows. When the
 woman shone a flashlight, the object blinked out and disappeared. (Ref. 3;
 Greenwood, UFO Historical Revue, June 1998.)
 
-44 Summer
-Normandy, France.
+44 Summer - Normandy, France.
 Los Angeles columnist George Todt, in a party of four Army officers
 including a Lt. Col., watched a pulsating red fireball sail up to the front lines,
 hover for 15 minutes, then move away. [NICAP UFO Evidence, 1964, Hall,
 IV]
 
-44 September 00
-Antwerp, Belgium.
-Around 9 p.m. in the evening a Canadian soldier, stationed near the front lines
-close to Antwerp, observed "a glowing globe traveling from the direction of
-the front line towards Antwerp.
+44 September - Around 9 p.m. - Antwerp, Belgium.
+A Canadian soldier, stationed near the front lines close to Antwerp, observed "a glowing globe traveling 
+from the direction of the front line towards Antwerp, Belgium.
 
 #### Page 6 of 105
 
-44 October 10
-Alghut, Sweden.
-At 8:00 p.m. a man on a bicycle was suddenly illuminated by a light beam
+44 October 10 - 8:00 p.m. - Alghut, Sweden.
+A man on a bicycle was suddenly illuminated by a light beam
 from the woods, then he saw a large shining sphere rise rapidly from the
 ground and hover at treetop height. It appeared moon-like; golden in color,
 and made no sound. After about 5 minutes the object abruptly disappeared.
 (Ref. 3; Anders Liljegren AFU archives.)
 
-45 March 00 - Belfast, Maine. A man out hunting observed an elongated object flying very slowly, tilted
+45 March - Belfast, Maine.
+A man out hunting observed an elongated object flying very slowly, tilted
 toward the earth. It crashed into some trees at the end of a clearing. (Magonia #53, FS May., 59)
 
-45 March 00 - Unknown City, New Mexico. Object aluminum colored, 12 to 14 feet off ground, motionless ,swept away
+45 March - Unknown City, New Mexico.
+Object aluminum colored, 12 to 14 feet off ground, motionless ,swept away
 like dragonfly. (Page 142-143 Ref.1)
 
-45 March 00 - Aleutian Islands, At Sea. Aboard the US attack transport "Delarof," 14 sailors saw a dark sphere rise out
+45 March - Aleutian Islands, At Sea.
+Aboard the US attack transport "Delarof," 14 sailors saw a dark sphere rise out
 of the ocean, follow a curved trajectory, and fly away after circling their ship. (Magonia #54, Evidence 30) [NICAP 
 UFO Evidence, 1964, Hall, IV]
 
-45 Summer - Aleutian Islands, At Sea. Crew saw large round object emerging from sea; 150-20 feet in diameter;
+45 Summer - Aleutian Islands, At Sea.
+Crew saw large round object emerging from sea; 150-20 feet in diameter;
 object circled ship; three white flashes observed in direction object departed. (Page 188-189 Ref.1)
 
-46 May 00 At twilight - Angelholm, Sweden. At twilight while walking home, a prominent industrialist saw a light in the
-woods and went to investigate. He saw a disc with dome and oval windows on the ground. Around it were about 11 beings 
-with transparent helmets and uniform-like clothing apparently working on the craft. Later he saw the craft take off 
-emitting bright red light, then speed away. Burned grass and other trace marks were found at the site. (Ref. 3; Flying 
-Saucer Review, March-April 1972.)
+46 May 00 At twilight - Angelholm, Sweden.
+While walking home, a prominent industrialist saw a light in the woods and went to investigate. He 
+saw a disc with dome and oval windows on the ground. Around it were about 11 beings with transparent 
+helmets and uniform-like clothing apparently working on the craft. Later he saw the craft take off 
+emitting bright red light, then speed away. Burned grass and other trace marks were found at the site. 
+(Ref. 3; Flying Saucer Review, March-April 1972.)
 
-46 August Late
-Oklahoma City
-OK
-2
-Disc-shaped craft with windows, humanoid figures visible inside, hovered at
-low altitude. After about 1-1/2 minutes the object rotated, then sped away
-disappearig in seconds. (Ref. 3; Case summary by Ted Bloecher, 14 pages.
-Interviews by Bloecher, Lucius Farish, and Mildred Higgins.)
+46 August Late - Oklahoma City, Oklahoma.
+Disc-shaped craft with windows, humanoid figures visible inside, hovered at low altitude. After about 
+1-1/2 minutes the object rotated, then sped away disappearig in seconds. (Ref. 3; Case summary by Ted 
+Bloecher, 14 pages. Interviews by Bloecher, Lucius Farish, and Mildred Higgins.)
 
-47 August 13
-Snake River
-ID
-2
-C
-5
-BBU
+47 August 13 - Snake River, Idaho.
 Snake River Case.
 
-47 August Late
-Vaughn (near)
-New Mexico
-2
-
-LC
+47 August Late - Vaughn (near), New Mexico.
 AFOSI Case 2: approx 20:00 - Basketball-Sized Object Explodes Near Colonel.
 
-48 August 29
-Maplewood
-OH
-2
-BBU
-Farmer Niswenger saw a large silvery sphere rise from a wooded area and
-hover above his farm, dropping a silvery substance that disintegrated before
-touching the ground. (Vallée Magonia 67; FUFOR Index)
+48 August 29 - Maplewood, Ohio.
+Farmer Niswenger saw a large silvery sphere rise from a wooded area and hover above his farm, dropping 
+a silvery substance that disintegrated before touching the ground. (Vallée Magonia 67; FUFOR Index).
 
 
-1948 October 1 - an Air National Guard F-51 pilot in Fargo, North Dakota, named Thomas
-Gorman had a dogfight with a small, flat, circular UFO. While flying,
-Gorman saw a light about eight inches in diameter displaying incredible
-movements. He repeatedly gave chase, each time outmaneuvered by the
-object. It eventually departed upward at high speed. Gorman said he “had
-the distinct impression that its maneuvers were controlled by thought or
-reason.” Others witnessed this bizarre encounter. The light was seen near
-the aircraft by control tower operators and people from other locations at
-all angles. All gave consistent descriptions of what they saw. The air force,
-nevertheless, said that Gorman and the other witnesses had seen a lighted
-balloon. UFO researcher Jerome Clark agreed, calling this case greatly
-overrated. Others disagreed. Jacques Vallee put the matter this way:
-“twenty-minute ball lightning would be more surprising to the physicists
-than flying saucers piloted by vegetable men.” James McDonald years
-later reinvestigated the sighting, concluding that it was indeed valid, and
-something extraordinary.
+1948 October 1 - Fargo, North Dakota.
+An Air National Guard F-51 pilot in Fargo, North Dakota, named Thomas Gorman had a dogfight with a small, 
+flat, circular UFO. While flying, Gorman saw a light about eight inches in diameter displaying incredible
+movements. He repeatedly gave chase, each time outmaneuvered by the object. It eventually departed upward 
+at high speed. Gorman said he “had the distinct impression that its maneuvers were controlled by thought 
+or reason.” Others witnessed this bizarre encounter. The light was seen near the aircraft by control tower 
+operators and people from other locations at all angles. All gave consistent descriptions of what they saw. 
+The air force, nevertheless, said that Gorman and the other witnesses had seen a lighted balloon. UFO 
+researcher Jerome Clark agreed, calling this case greatly overrated. Others disagreed. Jacques Vallee put 
+the matter this way: “twenty-minute ball lightning would be more surprising to the physicists than flying 
+saucers piloted by vegetable men.” James McDonald years later reinvestigated the sighting, concluding that 
+it was indeed valid, and something extraordinary.
 
-1948 October 16 - Two weeks later, on October 16, came a remarkable UFO sighting in
-Cache, Japan. This was an encounter of an F-61 Black Widow aircraft with
-an indeterminate number of UFOs. While on night patrol, the pilot and his
-crew picked up an object on radar at about 200 mph. As he closed to
-intercept, the object speeded up to 1,200 mph, then slowed down again.
-Six times the crew tried to close on the UFO; each time, the object
-accelerated out of reach. On one pass the crew saw the object’s silhouette,
-which looked “like a rifle bullet” twenty to thirty feet long. Intelligence
-reports indicated the UFO carried radar warning equipment, because it
-“seemed cognizant of the whereabouts of the F-61 at all times.” The
-sighting certainly impressed itself upon the pilot, who stated that “in my
-opinion, we were shown a new type of aircraft by some agency unknown
-to us.”13
+1948 October 16 - Cache, Japan.
+Two weeks later, on October 16, came a remarkable UFO sighting in Cache, Japan. This was an encounter of an 
+F-61 Black Widow aircraft with an indeterminate number of UFOs. While on night patrol, the pilot and his crew 
+picked up an object on radar at about 200 mph. As he closed to intercept, the object speeded up to 1,200 mph, 
+then slowed down again. Six times the crew tried to close on the UFO; each time, the object accelerated out of 
+reach. On one pass the crew saw the object’s silhouette, which looked “like a rifle bullet” twenty to thirty 
+feet long. Intelligence reports indicated the UFO carried radar warning equipment, because it “seemed cognizant 
+of the whereabouts of the F-61 at all times.” The sighting certainly impressed itself upon the pilot, who stated 
+that “in my opinion, we were shown a new type of aircraft by some agency unknown to us.”
 
-49 March 06 - Killeen Base, Camp Hood, Texas. blue-white object about 2 ft x 1 ft in size.
+49 March 06 - Killeen Base, Camp Hood, Texas. 
+Blue-white object about 2 ft x 1 ft in size.
 
-49 April 28 Homer, Michigan. Pursued 6 flying discs 10 inches diameter by car (FOIA).
+49 April 28 Homer, Michigan.
+Pursued 6 flying discs 10 inches diameter by car (FOIA).
 
-50 March 04 - Newburgh (near), Indiana. A man was driving east approximately two miles east of the junction of
-Indiana State Hwy 66 and 261 north of Newburgh, when he observed an object he believed to be a rocket at a 
-distance of approximately 50-75 yards in front of his automobile.
+50 March 04 - Newburgh (near), Indiana. 
+A man was driving east approximately two miles east of the junction of Indiana State Hwy 66 and 261 north of 
+Newburgh, when he observed an object he believed to be a rocket at a distance of approximately 50-75 yards in 
+front of his automobile.
 
-50 March 05
-Bloomfield
-New Mexico
-2
-Night. A dark, five-foot diameter disc paced a car. When the driver stopped
-the car the object circled the car, then sped away at a high speed.
+50 March 05 - Night - Bloomfield, New Mexico.
+A dark, five-foot diameter disc paced a car. When the driver stopped the car the object circled the car, 
+then sped away at a high speed.
 
 50 April 08
 Kokomo
@@ -3339,39 +3296,25 @@ technician, saw a huge, polished, metallic-appearing ball that hovered, started
 to descend, and then disappeared when an aircraft approached (aircraft
 avoidance). (Letter received 11 /28/67, NICAP files.)
 
-67 April 27
-SW part of State
-OK
-2
-8:30 p.m. Three witnesses saw an object that flashed light beams onto a car
-and paced the car at J an estimated altitude of 200 feet, remaining visible for
-several minutes. (Arkansas ' Gazette, 4/29/67, copy in NICAP files.) .
+67 April 27 - 8:30 p.m. - SW part of State, Oklahoma.
+Three witnesses saw an object that flashed light beams onto a car and paced the car at J an estimated 
+altitude of 200 feet, remaining visible for several minutes. (Arkansas ' Gazette, 4/29/67, copy in NICAP 
+files.)
 
-67 April 27
-Kingston
-New Hampshire
-2
-10:10 p.m. EDT (9:30 p.m. CDT). Three adults independently saw a dirigible-
-shaped (elliptical) object with "bubble" dome on top and two protrusions on its
-underside. (NICAP report form; Reynolds report received 7/26/67, NICAP
-files; U.F.O. Investigator, Vol. IV, No. 2, Oct. 1967, p. 3; Fowler, 1974, p.
-348.)
+67 April 27 - 10:10 p.m. - Kingston, New Hampshire.
+Three adults independently saw a dirigible-shaped (elliptical) object with "bubble" dome on top and 
+two protrusions on its underside. (NICAP report form; Reynolds report received 7/26/67, NICAP files; 
+U.F.O. Investigator, Vol. IV, No. 2, Oct. 1967, p. 3; Fowler, 1974, p. 348.)
 
-67 April 28
-Toronto, Ontario
-CANADA
-2
-9:00 p.m. EDT. A real estate agent and occupants of three other cars saw a
+67 April 28 9:00 p.m. - Toronto, Ontario, CANADA.
+A real estate agent and occupants of three other cars saw a
 shiny, metallic-appearing flattened sphere ^ an estimated 20 feet in diameter
 and 15 feet tall, with a band of alternate non- ; blinking red and green body
 lights around the middle. (NICAP report 1 form; U.F.O. Investigator, May-
 June 1967, p. 3.)
 
-67 April 30
-Orange
-MA
-2
-Evening. Many witnesses reported five objects with three green lights in a row
+67 April 30 - Evening - Orange, Massachusetts.
+Many witnesses reported five objects with three green lights in a row
 and two red lights (body lights) underneath. (The Worcester Evening Gazette,
 Mass., -5/2/67, copy in NICAP files.) [See previous case re: dropped "fire
 ball."]
