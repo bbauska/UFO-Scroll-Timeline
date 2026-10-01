@@ -31,7 +31,7 @@ from Science Monthly, 2-136]
 town. Duration: 1 1/2 min, as a bluish-green flame. Then plunged into the sea. Made several circles above the 
 ferry-boat pier.
 
-1886/10/24 During the night - Maracaibo, Venezuela. During the night, which was rainy and tempestuous, a family of nine persons,
+1886/ October /24 During the night - Maracaibo, Venezuela. During the night, which was rainy and tempestuous, a family of nine persons,
 sleeping in a hut a few leagues from Maracaibo, were awakened by a loud humming noise and a vivid, dazzling light, which 
 brilliantly illuminated the interior of the house.</p>
 
@@ -199,7 +199,7 @@ Springs when they saw a bright light in the sky. About 7 km farther they saw
 the light again coming down to the ground. One km farther the horses refused
 to walk.
 
-1900/10/31
+1900/ October /31
 At sea
 Gulf of Guinea
 2
@@ -410,7 +410,7 @@ the front line towards Antwerp.
 
 #### Page 6 of 105
 
-44/10/10
+44/ October /10
 Alghut
 Sweden
 2
@@ -543,14 +543,14 @@ KS
 2
 Rotating disc hovered, sped away when car approached [XII].</p>
 
-501013
+50 October 13
 Oak Ridge
 TN
 2
 NC
 Sightings by AEC security patrols.</p>
 
-501015
+50 October 15
 Oak Ridge
 TN
 2
@@ -629,7 +629,7 @@ T
 Object reported hovering over open field; bluish lights seen through ports;
 swift ascent when observed.</p>
 
-521031
+52 October 31
 Fayetteville
 GA
 2
@@ -668,13 +668,13 @@ VA
 Shiny, round object buzzed radio tower; transmitter failed to operate properly.
 [UFOE, VIII].</p>
 
-541003
+54 October 03
 Waben (near)
 France
 2
 UFO paced car. [UFOE, II].</p>
 
-541022
+54 October 22
 Marysville
 OH
 2
