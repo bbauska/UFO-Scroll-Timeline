@@ -157,101 +157,69 @@ Hooton spoke with a man who wore dark glasses and walked behind the craft.
 There were three or four occupants.
 
 1897 April 22
-Rockland
-Texas
-2
+Rockland, Texas.
 John M. Barclay was intrigued when his dog barked furiously and a high-
 pitched noise was heard. He went out, saw a flying object circling 5 m above
 ground. Elongated with protrusions and blinding lights, it went dark when it
 landed.
 
-1897 April 22
-Josserand
-Texas
-2
-Midnight. Frank Nichols, who lived 3 km east of Josserand and was one of its
-most respected citizens, was awakened by a machine noise. Looking outside,
-he saw a heavy, lighted object land in his wheat field. He walked toward it,
-was stopped by two men who asked permission to draw water from his well.
+1897 April 22 - Midnight - Josserand, Texas.
+Frank Nichols, who lived 3 km east of Josserand and was one of its most respected citizens, was awakened 
+by a machine noise. Looking outside, he saw a heavy, lighted object land in his wheat field. He walked 
+toward it, was stopped by two men who asked permission to draw water from his well.
 
-1897 April 23
-McKinney Bayou
-AR
-2
-Judge Lawrence A. Byrne of Texarkana, Arkansas, was surveying a tract of
-land when he saw a peculiar object anchored on the ground. "It was manned
-by three men who spoke a foreign language, but judging from their looks one
-would take them to be Japs."
+1897 April 23 - McKinney Bayou, Arkansas.
+Judge Lawrence A. Byrne of Texarkana, Arkansas, was surveying a tract of land when he saw a peculiar object 
+anchored on the ground. "It was manned by three men who spoke a foreign language, but judging from their 
+looks one would take them to be Japs."
 
-1897 April 26
-Aquila-Hillsboro
-Texas
-2
-Approximate date. A lawyer was surprised to see a lighted object fly over. His
-horse was scared and nearly toppled the carriage.
+1897 April 26 - Approximate date - Aquila-Hillsboro, Texas.
+A lawyer was surprised to see a lighted object fly over. His horse was scared and nearly toppled the carriage.
 
-1897 May 06
-Hot Springs
-Arkansas
-2
-Two policemen, Sumpter and McLenore, were riding northwest of Hot
-Springs when they saw a bright light in the sky. About 7 km farther they saw
-the light again coming down to the ground. One km farther the horses refused
-to walk.
+1897 May 06 - Hot Springs, Arkansas.
+Two policemen, Sumpter and McLenore, were riding northwest of Hot Springs when they saw a bright 
+light in the sky. About 7 km farther they saw the light again coming down to the ground. One km 
+farther the horses refused to walk.
 
-1900 October 31
-At sea
-Gulf of Guinea
-2
-3:05 a.m. Three persons aboard the "Fort Salisbury," including Second Officer
-A. H. Raymer, saw a huge, dark object bearing lights in the sea ahead. It was
-observed sinking slowly. Estimated length: 200 m.
+1900 October 31 - 3:05 a.m. - At sea, Gulf of Guinea.
+Three persons aboard the "Fort Salisbury," including Second Officer A. H. Raymer, saw a huge, dark 
+object bearing lights in the sea ahead. It was observed sinking slowly. Estimated length: 200 m.
 
-1900 November 00
-Helmer
-Indiana
-2
-During the early evening a family watched a brilliantly glowing cigar-shaped
-object hovering at treetop level. It had two rows of evenly spaced windows.
+1900 November - Helmer, Indiana.
+During the early evening a family watched a brilliantly glowing cigar-shaped object hovering at treetop 
+level. It had two rows of evenly spaced windows.
 
-1904
-Rolling Prairie
-Indiana
-2
+1904 - Rolling Prairie, Indiana.
 Tom Darby, with his brother and mother, saw two whitish-blue objects about
 400 m away, from a point situated 3 km north of Rolling Prairie. The objects
 hovered 2 or 3 m above ground, flew toward a barn, came closer to each other,
 and were hidden from view by a hill.
 
-1909 May 13
-King's Lynn
-United Kingdom
-2
-9:45 PM. A cigar-shaped object illuminated the terrain brightly in King's
-Lynn. Looking up, he saw the airship-like object speed overhead, two men
-visible in an undercarriage, and disappear in the distance within a few minutes.
+1909 May 13 - 9:45 p.m. - King's Lynn, United Kingdom.
+A cigar-shaped object illuminated the terrain brightly in King's Lynn. Looking up, he saw the airship-like 
+object speed overhead, two men visible in an undercarriage, and disappear in the distance within a few minutes.
 
-1909 May 18
-Caerphilly, Wales
-United Kingdom
-2
-11:00 p.m. Mr. Lethbridge was walking along a road near the mountains when
+1909 May 18 - 11:00 p.m. - Caerphilly, Wales, United Kingdom.
+Mr. Lethbridge was walking along a road near the mountains when
 he saw on the grass a large tubelike machine. Aboard were two men wearing
 furs and talking excitedly in a language the witness could not understand. The
 grass was found depressed at the site after the object had flown off.
 
 #### Page 4 of 105
 
-1909 June 16 4:10 a.m. - Donghoi, Annam. An elongated object following a west to east trajectory flew over the
-town. It gave off a strong light and was seen by two fishermen to plunge into the sea 6 km away from the coast, 
-after a steady flight of about 9 min.
+1909 June 16 4:10 a.m. - Donghoi, Annam. 
+An elongated object following a west to east trajectory flew over the town. It gave off a strong light 
+and was seen by two fishermen to plunge into the sea 6 km away from the coast, after a steady flight 
+of about 9 min.
 
-1909 December 22 - Worcester, Massachusetts. "Mysterious Airship" emitting a bright beam of light appeared moving SE to
-NW, hovered over city, moved away. Seen again two hours later; hovered, moved away to south and turned east.
+1909 December 22 - Worcester, Massachusetts. 
+"Mysterious Airship" emitting a bright beam of light appeared moving SE to NW, hovered over city, moved 
+away. Seen again two hours later; hovered, moved away to south and turned east.
 
-1910 January 11:00 p.m. - Invercargill, New Zealand, Australia. Several witnesses among them the vicar, the Mayor, and a
-policeman saw a cigar-shaped object hovering at 30 m altitude. A man appeared at a lateral door and was heard shouting 
-some words in an unknown language.
+1910 January 11:00 p.m. - Invercargill, New Zealand, Australia. 
+Several witnesses among them the vicar, the Mayor, and a policeman saw a cigar-shaped object hovering 
+at 30 m altitude. A man appeared at a lateral door and was heard shouting some words in an unknown 
+language.
 
 1910 Summer - Vernal, Utah. A man on horseback at night dismounted when his horse became disturbed,
 and walked to the edge of a clearing in the woods. There he saw a low-hovering disc with a row of lights.
@@ -293,68 +261,53 @@ back and forth.
 
 #### Page 5 of 105
 
-29 July 00
-Robsart
-CANADA
-2
+1929 July - Robsart, CANADA.
 Five persons among them Einar Rostivold, saw a huge ball of light giving off
 fiery colors, 25 km from Robsart. It landed slowly, vanished gradually after
 illuminating the whole countryside for 30 min.
 
-31 January 01
-Cobden, Ont
-CANADA
-2
+1931 January 01 - Cobden, Ontario, CANADA.
 UFO sighted in early morning, had bright light on front which lit up tree-tops,
 flashing lights on rear. Object made sweeping curve, sped up and climbed out
 of sight. (NICAP UFO Evidence, 1964, Hall)
 
-33 Summer
+1933 Summer
 Chrysville
 Pennsylvania.
 Morning. A man observed a faint violet light in a field between this town and
 Morrestown. Walking to it, he found an ovoid object 3 m in diameter and 2 m
 thick with a circular opening similar to a vault door.
 
-33 December 30
+1933 December 30
 Unknown City
 Sweden
 2
 Low-flying aeroplane (Page 7 Ref. 1)
 
-34 April 01
-Oslo
-Norway
-2
+1934 April 01
+Oslo, Norway.
 A very large aeroplane with eight propellers (Page 8 Ref. 1)
 
-37 January 01
-Unknown City
-North Carolina
-2
-30-40 foot in diameter object, no propellers, gun metal color (Page 10-11 Ref.
-1)
+1937 January 01
+Unknown City, North Carolina.
+30-40 foot in diameter object, no propellers, gun metal color (Page 10-11 Ref. 1)
 
 37 February 11
-Kvalsik
-Norway
-2
+Kvalsik, Norway.
 Large aeroplane with red and green glowing lights (Page 11, Ref. 1)
 
-38 July 25
-Guadalaraja
-Spain
-2
+1938 July 25
+Guadalaraja, Spain.
 Soldiers at the Spanish Civil War battlefront were illuminated by a bright
 glow, then saw an oval object about 10-12 meters in diameter shaped like “two
 inverted plates” hovering near the ground. A cylindrical column came down
 from the center and two beings emerged.
 
-38 Summer
+1938 Summer
 Unknown City, Massachusetts.
 Silvery object with rectangular portholes (Page 12 Ref. 1)
 
-39 November 13
+1939 November 13
 Brockworth
 United Kingdom
 2
