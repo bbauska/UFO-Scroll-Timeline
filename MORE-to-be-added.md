@@ -3155,6 +3155,7 @@ IN
 7
 4:30 PM. CE-III, humanoid report by three witnesses, "L-shaped" object held.
 UFO not seen and no sound heard.
+
 83 February 03
 Mobile (near)
 AL
@@ -3162,11 +3163,13 @@ AL
 1:10 AM. A 28-year-old woman observed a very large metallic, cylindrical
 flying object with structural detail up close while driving on a highway near
 Mobile. She could see 20-30 occupants inside through the windows.
+
 83 March 02
 Ckolo
 Bolivia
 7
 Space Aliens Terrorize Tiny Mountain Village
+
 83 March 24
 Mount Storm
 NY
@@ -3176,6 +3179,7 @@ Storm, New York a man given the pseudonym "Wright", a 16-year-old youth,
 and his 13-year-old sister had recurrent dreams of being abducted aboard a
 UFO by Grey aliens, which included a physical exam in a chair with a scan by
 some type of scanning equipment.
+
 83 March 26
 Careme, Tarn-Garonne
 France
@@ -3184,52 +3188,62 @@ Evening. Two witnesses driving in Careme encountered sudden fog, and then
 a huge disc-shaped UFO. Their car turned unaccountably onto an unknown
 dirt road, and they had a possible missing time experience. The entire
 experience lasted 50 minutes. (Source: Lumieres dans la Nuit, issue 317).
+
 83 June 00
 Liberty
 KY
 7
 Abduction report (Ridge files)
+
 83 June 30
 Indianapolis
 IN
 7
 Kathy Davis Abduction at Kitley Woods. (Budd Hopkins)
+
 83 July 14
 Frunze
 Russia
 7
 Space Alien Baby Found Alive
+
 83 August 09
 Winifreda
 Arg
 7
 A respected businessman says he was abducted by aliens
+
 83 August 12
 Aldershot
 UK
 7
 Fisherman taken aboard UFO
+
 83 August 15
 Evansville
 IN
 7
 6:00 AM. Complicated abduction report, with many reports of previous
 encounters. (Ridge files)
+
 83 October 03
 Indianapolis
 IN
 7
 2:00 AM. The second Kathy Davis abduction. (Sympap,84)
+
 83 November 00
 Spencer
 IN
 7
 Dawn. Humanoid report. No details. (Sympap,84)
+
 83 November 26
 Indianapolis
 IN
 7
 Evening. Humanoid Report, one witness. (SYMP84)
+
 84 January 08
 Framingham
 MA
@@ -3238,6 +3252,7 @@ MA
 the witness in bed. When the being had left a three-foot long by 18" cylinder
 shot straight up into the sky outside. (Source: MUFON UFO Journal, August
 1991).
+
 84 February 03
 Tingsryd
 Sweden
@@ -3247,6 +3262,7 @@ meters across and some 5-10 meters above the road ahead of him. He got to
 his home, got his camera, and went back to the site of his encounter. His car
 stalled, and he recalled seeing several beings who attempted to abduct him. He
 had nearly two hours of missing time.
+
 84 February 07
 Atco
 NJ
@@ -3264,6 +3280,7 @@ Italy
 11:00 AM. A humanoid wearing an odd helmet was seen in the woods west of
 Macomer, Sardinia, Italy by two children. A disc-shaped object rose from the
 forest floor, then flew off to the east-northeast.
+
 84 July 00
 St. Phillips
 IN
@@ -3272,6 +3289,7 @@ Highly paranormal activity and reported abduction during the first part of the
 month of July. Witness later reported this incident while in prison and again
 when out on work release, after drug-related incarceration. Reported his ex-
 wife would back him up. Case never investigated. (Ridge files)
+
 84 October 24
 Park Rapids
 MN
@@ -3280,12 +3298,14 @@ Diamond-shaped object, blue & white. One humanoid four feet tall, large
 head, large eyes, slender arms. Occupant outside of hovering object.
 Approached farm. Stood in light for ten minutes, returned to craft and
 departed. (Humrep, Molon)
+
 84 November 17
 Savah
 IN
 7
 8:45 PM. Abduction near Mt. Vernon, IN. Two percipients, several hours.
 (Ridge files).
+
 84 December 31
 Level Green
 PA
@@ -3294,11 +3314,13 @@ PA
 County, two residents of the community heard a tapping sound on one of their
 house windows. They saw what looked like an eye-like orb peering in through
 the window.
+
 85 December 26
 Ulster County
 NY
 7
 Whitley Strieber alien encounter (section XIII).
+
 86 August 15
 Calalzo di Cadore
 Italy
@@ -3306,17 +3328,20 @@ Italy
 UFO landed, witness had two-hour memory loss, strong physical traces at site.
 Memory later returned of two humanoid beings, views inside a craft (section
 XIII).
+
 88 January 20
 Mundrabilla
 AU
 7
 Knowles family encounter with oval object that buzzed car, car lifted off road,
 physical traces (section VI).
+
 88 March 20
 Unknown City
 WI
 7
 John Salter, Jr., and John, III, abduction (section XIII).
+
 89 September 21-1007
 Voronezh
 Russia
@@ -3324,12 +3349,14 @@ Russia
 UFO sighting concentration in vicinity. Four landings and three different kinds
 of entities reported (sections VIII, XII); geodesic engineer saw maneuvering
 airship-like object September 24 (section IV).
+
 89 November 30
 New York City
 NY
 7
 Linda Cortile's (pseudonym) abduction from 12th floor apartment, allegedly
 witnessed by international figure and security guards (Hopkins, 1996).
+
 93 August 08
 Melbourne, Victoria
 AU
@@ -3337,6 +3364,7 @@ AU
 Five people in two separate cars encountered UFO on road, experienced
 missing time. Memories returned gradually without hypnosis, including tall
 beings who abducted them (Chalker, 1996).
+
 94 July 24
 Melbourne, Victoria
 AU
