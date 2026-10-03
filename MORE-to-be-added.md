@@ -1,5 +1,5 @@
 | Date | City,State or Country | Description |
-|-------|-----------------------|---------------|
+|-------|----------------------|------------------------------------------------------------------------|
 | 1880 | Aldershot, United Kingdom |
 A strange being dressed in tight-fitting clothes and shining helmet soared over
 the heads of two sentries, who fired without result. The apparition stunned
