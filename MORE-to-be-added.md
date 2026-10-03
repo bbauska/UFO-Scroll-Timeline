@@ -1,20 +1,17 @@
 | Date | City,State or Country | Description |
 |-------|-----------------------|---------------|
-
 | 1880 | Aldershot, United Kingdom |
 A strange being dressed in tight-fitting clothes and shining helmet soared over
 the heads of two sentries, who fired without result. The apparition stunned
 them with something described as "blue fire." |
-
-1896 Arolla (near Zermatt), Swiss Alps
+| 1896 | Arolla (near Zermatt), Swiss Alps |
 Aleister Crowley was walking in the mountains when he suddenly saw two
 little men. He made a gesture to them, but they did not seem to pay attention
-and disappeared among the rocks.
-
-1897 April 14 - 3:00 p.m. - Gas City, IN
+and disappeared among the rocks. |
+| 1897 April 14 - 3:00 p.m. | Gas City, Indiana. |
 3:00 p.m. An object landed 2 km south of Gas City on the property of John
 Roush, terrifying the farmers and causing the horses and cattle to stampede.
-Six occupants of the ship came out and seemed to make some repairs.
+Six occupants of the ship came out and seemed to make some repairs. |
 
 1897 April 15 - Morning - Linn Grove, IA
 Morning. A large object was seen to fly slowly toward the north. It seemed
