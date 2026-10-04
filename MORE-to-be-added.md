@@ -2,14 +2,10 @@
 
 | Date | City,State or Country | Description                                                            |
 |:------|:--------------------:|:-----------------------------------------------------------------------|
-| 1880 | Aldershot, United Kingdom | A strange being dressed in tight-fitting clothes and shining helmet soared over
-the heads of two sentries, who fired without result. The apparition stunned them with something described as "blue fire." |
-| 1896 | Arolla (near Zermatt), Swiss Alps | Aleister Crowley was walking in the mountains when he suddenly saw two
-little men. He made a gesture to them, but they did not seem to pay attention and disappeared among the rocks. |
-| 1897 April 14 - 3:00 p.m. | Gas City, Indiana. | An object landed 2 km south of Gas City on the property of John
-Roush, terrifying the farmers and causing the horses and cattle to stampede. Six occupants of the ship came out and seemed to make some repairs. |
-| 1897 April 15 - Morning | Linn Grove, Iowa. | A large object was seen to fly slowly toward the north. It seemed
-ready to land and five men drove toward it. About 7 km north of Linn Grove, they found the craft on the ground, came within 700 m of it but it "spread its four giant wings and rose towards the North." Two strange figures aboard the
+| 1880 | Aldershot, United Kingdom | A strange being dressed in tight-fitting clothes and shining helmet soared over the heads of two sentries, who fired without result. The apparition stunned them with something described as "blue fire." |
+| 1896 | Arolla (near Zermatt), Swiss Alps | Aleister Crowley was walking in the mountains when he suddenly saw two little men. He made a gesture to them, but they did not seem to pay attention and disappeared among the rocks. |
+| 1897 April 14 - 3:00 p.m. | Gas City, Indiana. | An object landed 2 km south of Gas City on the property of John Roush, terrifying the farmers and causing the horses and cattle to stampede. Six occupants of the ship came out and seemed to make some repairs. |
+| 1897 April 15 - Morning | Linn Grove, Iowa. | A large object was seen to fly slowly toward the north. It seemed ready to land and five men drove toward it. About 7 km north of Linn Grove, they found the craft on the ground, came within 700 m of it but it "spread its four giant wings and rose towards the North." Two strange figures aboard the
 craft made efforts to conceal themselves. |
 | 1897 April 17 - Morning | Williamston, Michigan. | At least a dozen farmers saw an object maneuver in the sky for an
 hour before it landed. A strange man near 3 m tall, almost naked and suffering from the heat, was the pilot of the craft. 
