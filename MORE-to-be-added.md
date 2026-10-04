@@ -20,17 +20,12 @@
 | 1929 June 12 - 11:00 p.m. | Fermeneuve, Canada. | Levis Brosseau, 20 was returning home when he saw a dark object with a yellow light and his horse became very nervous. Within 6 m of the object four or five dwarfish figures were running back and forth. |
 | 1938 July 25 |  Guadalaraja, Spain. | Soldiers at the Spanish Civil War battlefront were illuminated by a bright glow, then saw an oval object about 10-12 meters in diameter shaped like “two inverted plates” hovering near the ground. A cylindrical column came down from the center and two beings emerged. |
 | 1938 Fall | Juminda, Estonia. | Two persons saw a strange "frog-man" 1 m tall with a round head, no neck, and a hump in front of the body. The mouth was a large, straight slit, the eyes were like smaller slits. |
-| 1941 Spring - Cape Girardeau, Minnesota. | 
-Charlotte Mann, a Texas woman whose grandfather was a pastor of the Red
-Star Baptist Church, told Leonard Stringfield, that her grandfather was called
-out to give last rights to some crash victims, who were described as from a
-crashed object. There were three bodies. All described as "not human". |
-| 1941 April 05 - Charleston, Mississippi. | Farmer abducted into submarine on Mississippi. |
-| 1942 Summer | Bass Strait, Tasman Peninsula. | A singular airfoil of glistening bronze color; domed upper surface; possible
-crew member, Cheshire cat emblem on dome. (Page 29 Ref 1) |
+| 1941 Spring | Cape Girardeau, Minnesota. | Charlotte Mann, a Texas woman whose grandfather was a pastor of the Red Star Baptist Church, told Leonard Stringfield, that her grandfather was called out to give last rights to some crash victims, who were described as from a crashed object. There were three bodies. All described as "not human". |
+| 1941 April 05 | Charleston, Mississippi. | Farmer abducted into submarine on Mississippi. |
+| 1942 Summer | Bass Strait, Tasman Peninsula. | A singular airfoil of glistening bronze color; domed upper surface; possible crew member, Cheshire cat emblem on dome. (Page 29 Ref 1) |
 | 1943 May | Norwich, United Kingdom. | Sighting of dome-shaped object and humanoid beings. (Ref. 3; Anders
-Liljegren, AFU Bibliography.)
-| 1943 November | Escondido, California. | On a dark moonless night a family heard a soft humming sound and saw a disc with dome and square windows hovering about 15 feet above the roof of their house. Human-like silhouettes were visible through the windows. When the woman shone a flashlight, the object blinked out and disappeared. (Ref. 3; Greenwood, UFO Historical Revue, June 1998.)
+Liljegren, AFU Bibliography.) |
+| 1943 November | Escondido, California. | On a dark moonless night a family heard a soft humming sound and saw a disc with dome and square windows hovering about 15 feet above the roof of their house. Human-like silhouettes were visible through the windows. When the woman shone a flashlight, the object blinked out and disappeared. (Ref. 3; Greenwood, UFO Historical Revue, June 1998.) |
 | 1944 August End |  Mattoon, Illinois. | A mysterious man appeared at windows, as if in search of someone. He stunned witnesses by pointing at them a device that "made consciousness dissolve" and left a strange cloying smell behind (Magonia #51, FSR 61, 3) (Needs to be checked. This did not check out, no newspaper reports could be found. Apparently the entire story was made up many years later. |
 | 1946 May | Angelholm, Sweden. | At twilight while walking home, a prominent industrialist saw a light in the woods and went to investigate. He saw a disc with dome and oval windows on the ground. Around it were about 11 beings with transparent helmets and uniform-like clothing apparently working on the craft. Later he saw the craft take off emitting bright red light, then speed away. Burned grass and other trace marks were found at the site. (Ref. 3; Flying Saucer Review, March-April 1972.) |
 | 1946 August Late | Oklahoma City, Oklahoma. | Disc-shaped craft with windows, humanoid figures visible inside, hovered at
@@ -38,50 +33,25 @@ low altitude. After about 1-1/2 minutes the object rotated, then sped away disap
 | 47 February 28 | Lima, Peru. | Three "Figures" Near Disc. |
 | 47 June 19 | Webster, Massachusetts. | Unidentified woman who saw an occupant inside an object who looked like "a Navy officer." |
 | 47 June 24 | Pendelton, Oregon. | A humanoid report on the same day Arnold had his sighting (Bloecher). |
-
-| 1947 July - Nashville, Tennessee.
-Area of a sighting of a landed disc and two occupants. (Bloecher).
-
-| 47 July - 2:30 p.m. - Near Malta, Mediterrian Sea, At Sea.
-Fishermen report "little men" on "sub".
-
-| 47 July 03 - Roswell, New Mexico.
-Famous alleged UFO crash and bodies recovered.
-
-| 47 July 07 - Tacoma, Washington. 
-Bloecher's case 547, from his book, is a humanoid report.
-
-| 47 July 08 - Houston, Texas.
-Bloecher's case 698, from his book, is a humanoid report.
-
+| 1947 July | Nashville, Tennessee. | Area of a sighting of a landed disc and two occupants. (Bloecher). |
+| 47 July - 2:30 p.m. | Near Malta, Mediterrian Sea, At Sea. | Fishermen report "little men" on "sub". |
+| 47 July 03 | Roswell, New Mexico. | Famous alleged UFO crash and bodies recovered. |
+| 47 July 07 | Tacoma, Washington.  | Bloecher's case 547, from his book, is a humanoid report. |
+| 47 July 08 | Houston, Texas. | Bloecher's case 698, from his book, is a humanoid report. |
 | 1947 August 14 |  Friuli, Italy. | Professor Encounters "Lens" & Creatures. | 
 | 1954 April 08 |  Chicago, Illinois. | Lady Observes Saucer / Small Entity Gets Out. | 
-| 1955 August 21-22 |  Kelly (7 miles N of Hopkinsville), Kentucky. | Sutton (Kelly / Hopkinsville) Encounter.
+| 1955 August 21-22 |  Kelly (7 miles N of Hopkinsville), Kentucky. | Sutton (Kelly / Hopkinsville) Encounter. |
 | 1957 October 15 | Minas Gerais State, Brazil. | Villas Boas abduction, sexual encounter case (UFOE, section XIII). | 
 | 1958 | Carribean near Cuba, At Sea. | Huge Cigar Observed With "Entities". |
 | 1959 June 26 | Papua (Boianai Mission), New Guinea. | Father Gill Case -saw Platform shaped object with "men" on top. |
-| 1959 June 27 | Papua (Boianai Mission), New Guinea. | Object returned from previous night with 2 others.
-| 1959 June 28 | Papua (Boianai Mission), New Guinea. | Father Gill saw up to 8 lights at varying heights.
+| 1959 June 27 | Papua (Boianai Mission), New Guinea. | Object returned from previous night with 2 others. |
+| 1959 June 28 | Papua (Boianai Mission), New Guinea. | Father Gill saw up to 8 lights at varying heights. |
 | 1961 September 19 | Indian Head, New Hampshire. | Betty & Barney Hill Case. |
-
-64 April 24 - Socorro, New Mexico.
-Lonnie Zamora case.
-
-64 April 24 - Newark Valley, New York.
-Farmer found shiny elliptical object in field, confronted by two small
-humanoids who spoke with him (UFOE Section XII).
-
-64 May 17 - Lawrence (near), Ohio.
-Close encounter II, no details. (UFOI-2,7)
-
-1964 Summer - Late evening - Point Isabel, Ohio.
-A couple saw a creature over 6' tall with gold, glowing eyes and
-wide shoulders. Body hair not obvious; had pointed chin and large ears. Just
-vanished from short distance. (Stringfield; Skylook-93,9)
-
-64 July 16 - Conklin, New York.
-Humanoid with dark suit and helmet, climbed on top of craft. Physical traces
-found at site (UFOE Section XII).
+| 64 April 24 | Socorro, New Mexico. | Lonnie Zamora case. |
+| 64 April 24 | Newark Valley, New York. | Farmer found shiny elliptical object in field, confronted by two small humanoids who spoke with him (UFOE Section XII). |
+|64 May 17 | Lawrence (near), Ohio. | Close encounter II, no details. (UFOI-2,7) |
+| 1964 Summer - Late evening | Point Isabel, Ohio. | A couple saw a creature over 6' tall with gold, glowing eyes and wide shoulders. Body hair not obvious; had pointed chin and large ears. Just vanished from short distance. (Stringfield; Skylook-93,9) |
+| 64 July 16 | Conklin, New York. | Humanoid with dark suit and helmet, climbed on top of craft. Physical traces found at site (UFOE Section XII). |
 
 64 September 04 - Cisco Grove (near), California.
 Hunter in tree saw 3 flying silvery lighted objects 1/4 mile away.
