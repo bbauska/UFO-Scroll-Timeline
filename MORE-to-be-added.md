@@ -1,3 +1,5 @@
+# MORE-to-be-added.md
+
 | Date | City,State or Country | Description                                                            |
 |:------|:--------------------:|:-----------------------------------------------------------------------:|
 | 1880 | Aldershot, United Kingdom |
@@ -12,36 +14,29 @@ and disappeared among the rocks. |
 3:00 p.m. An object landed 2 km south of Gas City on the property of John
 Roush, terrifying the farmers and causing the horses and cattle to stampede.
 Six occupants of the ship came out and seemed to make some repairs. |
-
-1897 April 15 - Morning - Linn Grove, IA
-Morning. A large object was seen to fly slowly toward the north. It seemed
+} 1897 April 15 - Morning | Linn Grove, Iowa. |
+A large object was seen to fly slowly toward the north. It seemed
 ready to land and five men drove toward it. About 7 km north of Linn Grove,
 they found the craft on the ground, came within 700 m of it but it "spread its
 four giant wings and rose towards the North." Two strange figures aboard the
-craft made efforts to conceal themselves.
-
-1897 April 17 - Morning - Williamston, MI
-Morning. At least a dozen farmers saw an object maneuver in the sky for an
+craft made efforts to conceal themselves. |
+| 1897 April 17 - Morning | Williamston, Michigan. |
+At least a dozen farmers saw an object maneuver in the sky for an
 hour before it landed. A strange man near 3 m tall, almost naked and suffering
 from the heat, was the pilot of the craft.
-
-1897 April 19
-Leroy
-KS
-7
-10:30 p.m. Alexander Hamilton was awakened by a noise among the cattle
+| 1897 April 19 - 10:30 p.m. - Leroy, Kansas. |
+Alexander Hamilton was awakened by a noise among the cattle
 and went and saw an elongated cigar-shaped object, about 100 m long with a
 transparent cabin underneath showing narrow reddish bands, hovering 10 m
 above ground. Inside it were "six of the strangest beings" the witness had seen,
 also described as "hideous." A cow was dragged away by the object with the
-help of a strong red cable; it was found butchered in a field the next day.
-
-1897 April 20 - 6:00 p.m. - Homan, Arkansas.
+help of a strong red cable; it was found butchered in a field the next day. |
+| 1897 April 20 - 6:00 p.m. | Homan, Arkansas. |
 Capt. James Hooton was hunting in the vicinity of Homan when he
 heard the noise of a steam engine and found an object in a clearing. It looked
 like a cylinder with pointed ends, lateral wheels, and horizontal blade over it.
 Hooton spoke with a man who wore dark glasses and walked behind the craft.
-There were three or four occupants.
+There were three or four occupants. |
 
 1897 April 22 - Midnight - Josserand, Texas.
 Frank Nichols, who lived 3 km east of Josserand and was one of its
@@ -320,19 +315,13 @@ the dome were two moving figures. Portholes glowed on the perimeter of the
 object. An odor was reported, and a yard light was affected (EM effects).
 (Fowler, 1974, p. 348.)
 
-67 June 13
-Caledonia, Ontario
-CAN
-7
-2:30 a.m. Three 3 to 4' tall beings, light colored clothing, helmets, moved
+67 June 13 - 2:30 a.m. - Caledonia, Ontario, Canada.
+Three 3 to 4' tall beings, light colored clothing, helmets, moved
 around beneath cigar-shaped craft with windows. Physical traces found at site.
 (Hall, 1964-1967, pages 474-482, Vol. II, The UFO Evidence)
 
-67 June 15
-Caledonia, Ontario
-CAN
-7
-2:35 a.m. EDT. Two people saw two stationary objects, one disc-shaped and
+67 June 15 - 2:35 a.m. - Caledonia, Ontario, Canada.
+Two people saw two stationary objects, one disc-shaped and
 the other cigar-shaped, on or near the ground in the vicinity of a factory for
 about 20 minutes. Three occupants less than 4 feet tall, in light colored
 uniforms, and wearing "helmets" with four lights, were observed scurrying
@@ -340,31 +329,22 @@ around outside the cigar. Physical traces found at the site included a burned
 area, disturbed grass, and an oily substance. (Cuneo letter, 6/19/67, NICAP
 files; APRO Bulletin, Nov. - Dec. 1967, p. 4.)
 
-67 July 17
-Newville
-PA
-7
-1:00 a.m. EDT. Three people saw a round object (10-15 feet diameter) with a
+67 July 17 - 1:00 a.m. - Newville, Pennsylvania.
+Three people saw a round object (10-15 feet diameter) with a
 bright orange hue. (See above reports.) The interior appeared to be partly
 visible, and a creature or being of some kind was seen within it. (NICAP
 report form and letter from Pennsylvania NICAP Subcommittee, 8/29,67,
 NICAP files.)
 
-67 July 20
-Titusville
-FL
-7
-9:15 p.m. EDT. A woman and her daughter saw a bell-shaped object with a
+67 July 20 - 9:15 p.m. - Titusville, Florida.
+A woman and her daughter saw a bell-shaped object with a
 dull metal finish and five square windows. An intense white light came from
 the inside. A humanoid with slim torso, an egg-shaped head, and long rubbery-
 looking arms was visible at one of the windows, and "shadowy movements"
 were seen in other windows. (NICAP report form; Florida NICAP
 Subcommittee report, 8/11/67, NICAP files.)
 
-67 July 31
-Churchville
-NY
-7
+67 July 31 - Churchville, New York.
 Two small beings, shiny black garb. Saturn-shaped craft seen near ground in
 truck headlights. Beings boarded, took off straight up. (Hall, 1964-1967, pages
 474-482, Vol. II, The UFO Evidence)
