@@ -1,11 +1,7 @@
 ## Category 02 - Close Encounters: Objects within 500 feet of the witness (thru November 11, 2012)
+### all previous pages checked and entered - for the most part.
 
-### <all previous pages checked and entered - for the most part>
-
-#### PAGE 1 OF 105
-
-Date - City  - State or Country - Cat - Code - Rating - BB - NC flag -  LC Description
-
+### Date - City  - State or Country - Cat - Code - Rating - BB - NC flag -  LC Description
 1868 July 00 Copiago, Chile 2 - A strange "aerial construction" bearing lights and making engine noises flew
 low over this town. Local people also described it as a giant bird covered with large scales producing a 
 metallic noise.
@@ -49,8 +45,6 @@ flew away very fast to the southeast. When directly over the town it swept the g
 Before the three witnesses could reach it, the craft, which was shaped like a cigar with a dome, rose slowly and left 
 majestically toward the north.
 
-#### Page 2 of 105
-
 1897 April 12
 Girard (near Green Ridge)
 Illinois
@@ -84,52 +78,30 @@ they found the craft on the ground, came within 700 m of it but it "spread its
 four giant wings and rose towards the North." Two strange figures aboard the
 craft made efforts to conceal themselves.
 
-1897 April 15
-Howard-Artesian
-SD
-2
-Nightfall. A flying object coming closer and closer to the ground followed a
+1897 April 15 - Nightfall - Howard-Artesian, South Dakota.
+A flying object coming closer and closer to the ground followed a 
 train, as reported by the engineer, Joe Wright (Magonia #19, FSR 66,4)
 
-1897 April 15
-Perry Springs
-Missouri
-2
-9:00 p.m. A passenger train on the Wabash line, going toward Quincy, was
-followed by a low-flying object for 15 min between Perry Springs and
-Hersman. All the passengers saw the craft, which had a red and white light.
+1897 April 15 - 9:00 p.m. - Perry Springs, Missouri.
+A passenger train on the Wabash line, going toward Quincy, was followed by a low-flying object for 15 min between Perry Springs and Hersman. All the passengers saw the craft, which had a red and white light.
 
-1897 April 15
-Springfield
-Illinois
-2
+1897 April 15 - Springfield, Illinois.
 Two farm workers, Adolph Winkle and John Hulle, saw a strange craft in a
 field. They had a discussion with its occupants, a woman and two men, and
 were told the ship-had flown from Quincy to Springfield in 30 min and that
 the crew was making electrical repairs.
 
-1897 April 16
-Downs Township
-Illiinois
-2
-Approximate date. While working in his field, Haney Savidge saw an aerial
-craft land near him. Six people emerged from it and spoke to him for a few
-minutes before leaving again.(Magonia #22, 191)
+1897 April 16 - Approximate date - Downs Township, Illiinois.
+While working in his field, Haney Savidge saw an aerial craft land near him. Six people emerged from it and spoke to him for a few minutes before leaving again.(Magonia #22, 191).
 
-1897 April 16
-Vincennes
-Indiana
-2
-9:00 p.m. A mysterious airship passed over the city twice on the night of
+1897 April 16 - 9:00 p.m. - Vincennes, Indiana.
+A mysterious airship passed over the city twice on the night of
 Friday, April 16. According to the Vincennes Morning Commercial, the
 airship first appeared about nine oclock, traveling along the extreme eastern
 portion of the horizon
 
-1897 April 17
-Williamston
-Michigan
-2
-Morning. At least a dozen farmers saw an object maneuver in the sky for an
+1897 April 17 - Morning - Williamston, Michigan.
+At least a dozen farmers saw an object maneuver in the sky for an
 hour before it landed. A strange man near 3 m tall, almost naked and suffering
 from the heat, was the pilot of the craft.
 
@@ -144,20 +116,14 @@ above ground. Inside it were "six of the strangest beings" the witness had seen,
 also described as "hideous." A cow was dragged away by the object with the
 help of a strong red cable; it was found butchered in a field the next day.
 
-#### Page 3 of 105
-
-1897 April 20
-Homan
-AR
-2
-6:00 p.m.Capt. James Hooton was hunting in the vicinity of Homan when he
+1897 April 20 - 6:00 p.m. - Homan, Arkansas.
+Capt. James Hooton was hunting in the vicinity of Homan when he
 heard the noise of a steam engine and found an object in a clearing. It looked
 like a cylinder with pointed ends, lateral wheels, and horizontal blade over it.
 Hooton spoke with a man who wore dark glasses and walked behind the craft.
 There were three or four occupants.
 
-1897 April 22
-Rockland, Texas.
+1897 April 22- Rockland, Texas.
 John M. Barclay was intrigued when his dog barked furiously and a high-
 pitched noise was heard. He went out, saw a flying object circling 5 m above
 ground. Elongated with protrusions and blinding lights, it went dark when it
@@ -204,8 +170,6 @@ Mr. Lethbridge was walking along a road near the mountains when
 he saw on the grass a large tubelike machine. Aboard were two men wearing
 furs and talking excitedly in a language the witness could not understand. The
 grass was found depressed at the site after the object had flown off.
-
-#### Page 4 of 105
 
 1909 June 16 4:10 a.m. - Donghoi, Annam. 
 An elongated object following a west to east trajectory flew over the town. It gave off a strong light 
@@ -258,8 +222,6 @@ light which illuminated the ground and startled cattle. (NICAP UFO Evidence, 196
 1929 June 12 11:00 p.m. - Fermeneuve, CANADA. Levis Brosseau, 20 was returning home when he saw a dark object with a 
 yellow light and his horse became very nervous. Within 6 m of the object four or five dwarfish figures were running 
 back and forth.
-
-#### Page 5 of 105
 
 1929 July - Robsart, CANADA.
 Five persons among them Einar Rostivold, saw a huge ball of light giving off
@@ -330,8 +292,6 @@ IV]
 44 September - Around 9 p.m. - Antwerp, Belgium.
 A Canadian soldier, stationed near the front lines close to Antwerp, observed "a glowing globe traveling 
 from the direction of the front line towards Antwerp, Belgium.
-
-#### Page 6 of 105
 
 44 October 10 - 8:00 p.m. - Alghut, Sweden.
 A man on a bicycle was suddenly illuminated by a light beam
@@ -431,8 +391,6 @@ East Germany
 2
 BBU
 40-50 ft frying pan-shaped object with two rows of 1 ft holes.
-
-#### Page 7 of 105
 
 50 June 30
 Kingman (near)
@@ -636,8 +594,6 @@ OH
 2
 Close encounter with domed-top 40' UFO.
 
-#### Page 8 of 105
-
 58 April 07
 Newport Beach
 CA
@@ -810,8 +766,6 @@ Bluish disc observed hovering and circling slowly, apparently at tree-top
 height; rose vertically and disappeared. [Report via Bay Area NICAP
 Subcommittee.]
 
-#### Page 9 of 105
-
 63 June 21
 Chicago
 Illiinois
@@ -841,15 +795,13 @@ visible along its length, and rays of light shone upward from each end of the
 object occasionally. [Witnesses interviewed by Walter N. Webb, NICAP
 Adviser.]
 
-63 October 04
-East Hartland, Connecticut.
+63 October 04 - East Hartland, Connecticut.
 State Representative L. B. Martin, about 1:00 p.m., saw a silvery triangular
 object with a row of black dots across the leading edge. The UFO passed
 overhead, emitting a flame-like tail, at an estimated speed of 2000 mph.
 [Report obtained by NICAP-CONN Affiliate.]
 
-63 October 31
-Daylston, Victoria, Australia.
+63 October 31 - Daylston, Victoria, Australia.
 A deliveryman on his rounds at 4:15 a.m., was frightened by a UFO which
 approached his van, turned and followed his course just ahead. The object
 seemed to be 8-12 feet long, glowing orange and red. It then darted to the side
@@ -857,8 +809,7 @@ of the road, continuing to pace the van for a while, finally zooming ahead over
 a hill and apparently descending. It was not seen again. Other witnesses
 reported seeing a maneuvering light at the time of the sighting.
 
-63 November 20
-Neche, North Dakota.
+63 November 20 - Neche, North Dakota.
 Two high school girls reported that a bright orange, oval-shaped object circled
 their car at night while they were en route home. They were on highway 55
 east of town when they first saw the UFO. It appeared to be surrounded by a
@@ -872,70 +823,42 @@ altitude, turned, appeared to follow car, then fell back and seemed to head
 toward ground. Driver was physics student at Georgia Institute of
 Technology. (NICAP report form.)
 
-64 May 17 - Tipton, Indiana.
-10:15 p.m. Citizens and police officers called to the scene, witnessed a UFO.
-The reddish object appeared round while hovering, then darted across the sky
-and appeared flattened while in motion. (UFOI-II,7)
+64 May 17 - 10:15 p.m. - Tipton, Indiana.
+Citizens and police officers called to the scene, witnessed a UFO. The reddish object appeared round while hovering, then darted across the sky and appeared flattened while in motion. (UFOI-II,7)
 
-64 July 28
-Lake Chelan, Washington.
+64 July 28 - Lake Chelan, Washington.
 Round Object Descends To Ground.
 
-65 January 05
-Wallops Island, Virginia.
+65 January 05 - Wallops Island, Virginia.
 Bright Yellow Light Flies Overhead.
 
-65 January 12
-Blaine AFB, Washington.
+65 January 12 - Blaine AFB, Washington.
 Driver Avoids Collision With 30' Object.
 
-65 January 27
-Hampton, Virginia.
-NASA engineer saw V-shaped object with red-orange lights zigzagging at low
-level. Object touched down briefly, took off, and rapidly climbed out of sight
-(UFOE II, Section IV).
+65 January 27 - Hampton, Virginia.
+NASA engineer saw V-shaped object with red-orange lights zigzagging at low level. Object touched down briefly, took off, and rapidly climbed out of sight (UFOE II, Section IV).
 
-65 February 01
-Tallahassee, Florida.
+65 February 01 - Tallahassee, Florida.
 Saucer With Domed Top / Humming Sound / 32-40 Witnesses.
 
 65 April 04
 Keesler AFB, Mississippi.
 40' Black Oval Object 500' Away
 
-#### PAGE 10 OF 105
+65 April 23 - Rivesville, West Virginia.
+Woman saw a 25 ft object land near her house shaped like a disc.
 
-65 April 23
-Rivesville, WV Woman saw a 25 ft object land near her house shaped like a disc
+65 June 01 - Knob Noster, Missouri.
+Close encounter. Obj. 45' above the ground.
 
-65 June 01
-Knob Noster
-Missouri
-2
-Close encounter. Obj. 45' above the ground
-
-65 July 20
-Chesterville, Ontario
-CANADA
-2
+65 July 20 - Chesterville, Ontario, CANADA.
 Domed object paced car, climbed out of sight (UFOE II, Section, XII).
 
-65 August 04
-Dallas
-Texas
-2
-BBU
-1:30 AM - Man in a car was passed by a huge, orange object flying at ground
-level
+65 August 04 - 1:30 a.m. - Dallas, Texas.
+Man in a car was passed by a huge, orange object flying at ground level.
 
-65 August 30
-Urbana
-OH
-2
-C
-5
-9864
-White Ball Hits Road Flies Away
+65 August 30 - Urbana, Ohio.
+White Ball Hits Road Flies Away.
 
 65 September 03
 Damon
@@ -1065,8 +988,6 @@ Illinois
 BBU
 flying oval object, the size of a car, came within 10 ft of car
 
-#### Page 11 of 105
-
 66 March 03
 Oswego
 New York
@@ -1162,8 +1083,6 @@ LaPorte, Indiana.
 Dawn, Police and others saw a round luminous yellow-white object with
 projections on top. The UFO paced a car, swerving from side to side, its light
 reflected from the hood of the car. (NICAP notes.)
-
-#### Page 12 of 105
 
 66 March 19-20
 Freeport
@@ -1266,8 +1185,6 @@ Oklahoma.
 edge was seen hovering about 25 feet over woods, point downward, by a farm
 couple for about an hour. (Associated Press story, few details.)
 
-#### Page 13 of 105
-
 66 March 26
 Ann Arbor, Michigan.
 Time not reported. Engineers and technicians watched a glowing red disc
@@ -1340,8 +1257,6 @@ Westminster Hospital for about 5 minutes. The object then flipped on edge,
 blue flame was emitted from the protuberances, and it rose into the clouds
 leaving a comet-like trail. An independent witness confirmed the sighting.
 (Flying Saucer Review, Vol. 12, No. 4, July-August 1966, P. 31.)
-
-#### Page 14 of 105
 
 66 March 30
 Rehoboth, Massachusetts.
@@ -1441,8 +1356,6 @@ MA
 and blue lights along its perimeter was seen hovering off Route 16. [Compare
 to April 12, Brockton, Mass., sighting.] (Fowler, 1974, p. 337.)
 
-#### Page 15 of 105
-
 66 April 17
 Peabody
 MA
@@ -1534,8 +1447,6 @@ hovered. The frightened witnesses fled at high speed, and the UFO apparently
 followed. The object was finally seen speeding away to the northeast. (Keyhoe
 & Lore, 1969a, p. 8; report by Walter N. Webb.)
 
-#### Page 16 of 105
-
 66 April 22
 Wenham
 MA
@@ -1626,8 +1537,6 @@ hover above the trees for 30 minutes. Smaller lights, occasionally flashing,
 darted to and from it. The object departed when an aircraft approached the
 area (aircraft avoidance). (NICAP notes.)
 
-#### Page 17 of 105
-
 66 May 06
 Carnestown
 FL
@@ -1700,8 +1609,6 @@ white, yellow, blue, and green flashing lights around the circumference (body li
 ahead over the road. (Fowler, 1974, p. 341; Boston Traveler, June 13, 1966, quoted in Flying Saucer Review, Vol. 12, 
 No. 5, Sept.-Oct. 1966, p. 30.
 
-#### PAGE 18 OF 105
-
 66 June 13 - Milan, Michigan. cops saw object on 3/17 and another on the ground on 6/13
 
 66 June 16 - Mt. Sunapee, New Hampshire.  Time not reported. A woman saw a large glowing obiect hovering near
@@ -1746,8 +1653,6 @@ Nov. -Dec. 1966, p. iii.)
 glow cast a green light over the area (environmental illumination). The glow lasted for about 7 seconds, and then 
 the object shot away and disappeared. (NICAP notes.)
 
-#### PAGE 19 OF 105
-
 66 August 19 - Sault Ste. Marie, Minnesota. Time not reported. A disc like an inverted dinner plate, with red and green
 body lights on top and bottom and flashing lights on the circumference, hovered over the Algoma steel plant. The 
 object abruptly took off to the north at high speed, seen over a wide area. (NICAP notes; U.F.O. Investigator, Vol.
@@ -1789,8 +1694,6 @@ interference also was experienced (EM effects) during the sighting. (Keyhoe & Lo
 at low altitude, then sped away when he shone a spotlight on it (light reaction.). (NICAP notes, from newspaper story-)
 
 66 October 26 - Cold Bay AFS, Alaska 11092 tower operator saw a white object approach runway.
-
-#### Page 20 of 105
 
 661028 1:00 a.m. - Lawrence, Maryland. A newspaper editor responding to phone calls saw a glowing white, cigar-shaped 
 object hovering at a 45-degree angle over water towers. A closer witness saw bright white lights along its side. (Fowler 
@@ -1838,8 +1741,6 @@ shaped disc with a dark upper surface, trapezoidal sections of fluorescent light
 pulsating colored lights (body lights). The obiect responded to house spotlights by blinking in the same 
 sequence (light reaction). (Air Force report form in Colorado Project files.)
 
-#### Page 21 of 105
-
 67 January 10 8:30 p.m. - Bruceville, Indiana. A woman and her son, 16, were driving home when they saw an elliptical 
 dull gray object glowing a bluish color around the rim. It was estimated to be 25 feet over the car, 30 feet in 
 diameter and 8 feet thick. The object hovered, moved slowly, then accelerated away. It displayed a disc shape when 
@@ -1880,8 +1781,6 @@ lights. At 5:30 pm a woman and her daughter saw an object that looked like a box
 with two bright headlights on the front. The object was moving slowly, and hovering soundlessly, but there was a purring 
 sound when it started to move away rapidly. All witnesses reported the object to be huge. (U.F.O Investigator, Vol. Ill, 
 No. 12, Mar.-Apr., 1967, p. 5.)
-
-#### Page 22 of 105
 
 67 January 17 Freetown, Indiana. Francis Bedel, Jr., (23) of Portland, Indiana, was driving on State Highway 135, a two-lane 
 blacktop road, north of Freetown, he later reported to State Police, when a brilliant glowing white light darted into 
@@ -1948,8 +1847,6 @@ motions, and sometimes with hesitating forward motion. The object hovered
 over the highway for 15-20 seconds, then sped from sight in 15 seconds.
 Witnesses could see military bombing practice in the distance at the same
 time. (NICAP report form.)
-
-#### Page 23 of 105
 
 67 February 03
 Hamilton, Ontario
@@ -2035,8 +1932,6 @@ Midnight CST (1:00 a.m. EST). A couple was approached by an oval object
 that hovered just above the ground displaying red, blue, green, and white
 flashing lights. The object then flew away. (St. Louis Post Dispatch, 2/7/67,
 copy in NICAP files.)
-
-#### Page 24 of 105
 
 67 February 07
 Westport,
@@ -2144,8 +2039,6 @@ lights (body lights). A steady light beam was emitted from the bottom. The
 object descended rapidly, then rose again. (Westport News, Conn., 2/16/67,
 copy in NICAP files.)
 
-#### Page 25 of 105
-
 67 February 12
 Wharton
 Texas
@@ -2228,8 +2121,6 @@ The object hovered, then moved off making a sound like a strong wind.
 (Morgantown Dominion News, West Virginia, 2/15/67, copy in NICAP files;
 undated Kalapaca investigation report in NICAP files.)
 
-#### Page 26 of 105
-
 67 February 14
 Lee's Summit
 Missouri
@@ -2304,8 +2195,6 @@ other people in cars looking at it. (Massachusetts NICAP Subcommittee Report, NI
 files, National Archives; U.F.O. Investigator, Vol.. Ill, No. 12, March-April 1967, p. 6; Fowler, 1974, p. 
 344.)
 
-#### Page 27 of 105
-
 67 February 17 7:45 p.m. - Lawrence, Massachusetts. An electrical engineer and his wife going south on Route 
 93 saw a loose cluster of 8-9 red, green, and white lights apparently on an object at low altitude and moving 
 very slowly. A bright white light was at the bottom of the cluster (body lights). The object, going NE, passed 
@@ -2373,8 +2262,6 @@ Maryland
 12:45 p.m. EST (11:45 a.m. CST). A man along with his mother saw a
 metallic-appearing object that hovered, circled (maneuvered), then accelerated
 and flew away rapidly. (Letter dated 3/25/67 in NICAP files.)
-
-#### Page 28 of 105
 
 67 February 21
 Winfield
@@ -2474,8 +2361,6 @@ object for several minutes. They provided two descriptions: (1) a reddish-
 orange object, and (2) a cluster of lights with bright center, reddish edges, and
 oval shape. (Ann Arbor News, Michigan, 3/1/67, copy in NICAP files.) .
 
-#### Page 29 of 105
-
 67 March 00
 New Cuyama
 California
@@ -2573,8 +2458,6 @@ Illinois
 luminous windows in a row along the side. (Lewistown newspaper, copy in
 NiCAP files; Air Force report, Project Blue Book files, National Archives.)
 
-#### Page 30 of 105
-
 67 March 04
 Vicco
 Kentucky
@@ -2665,8 +2548,6 @@ Colorado
 9:00 p.m. MST (10:00 p.m. CST). A greenish disc with dome was observed
 moving on a level course, then curving downward. (Air Force report No.
 00534B in Colorado UFO Project files.
-
-#### Page 31 of 105
 
 67 March 09
 Shamokin
@@ -2774,8 +2655,6 @@ MN
 BBU
 car-sized inverted mushroom-shaped object hovering 30 ft above ground
 
-#### Page 32 of 105
-
 67 March 12
 Vernal and Roosevelt bt.
 Utah
@@ -2863,8 +2742,6 @@ VT
 10:30 p.m. EST. A couple saw an oval with a body light changing color from
 red to blue. The object seemed to follow their car before flying away over the
 horizon after 15 minutes. (White letter, 4/8/67, NICAP files.)
-
-#### Page 33 of 105
 
 67 March 18
 Stow
@@ -2971,8 +2848,6 @@ twice the size of an airliner. It moved sideways at first, then climbed and
 accelerated away. (Reading Evening Post, England, 3/31/67, copy in NICAP
 files.)
 
-#### Page 34 of 105
-
 67 March 31
 Wellington
 Texas
@@ -3062,8 +2937,6 @@ CA
 8:45 p.m. PST; 9:45 p.m. MST). A couple watched a fly-by of a red disc with
 windows at low altitude. ((NICAP report form.)
 
-#### Page 35 of 105
-
 67 April 06
 Los Angeles
 CA
@@ -3150,8 +3023,6 @@ glowing, red-orange bowl-shaped object that was emitting very bright light
 extended from it for about 5 minutes. Finally it shot ;-away to the
 northwest. (NICAP report form.)
 
-#### Page 36 of 105
-
 67/ April /12
 Coastal Keys Highway
 CA
@@ -3227,8 +3098,6 @@ FL
 The object hovered, and tilted as a small aircraft passed beneath it. The plane
 reversed course possibly to look at the UFO. (Florida NICAP Subcommittee
 report, NICAP report form, in NICAP files.)
-
-#### Page 37 of 105
 
 67 April 21
 Phillipston
@@ -3318,8 +3187,6 @@ Many witnesses reported five objects with three green lights in a row
 and two red lights (body lights) underneath. (The Worcester Evening Gazette,
 Mass., -5/2/67, copy in NICAP files.) [See previous case re: dropped "fire
 ball."]
-
-#### Page 38 of 105
 
 67 May 00
 Samoset
@@ -3411,8 +3278,6 @@ white light on one end (body lights). The object hovered over the ground near
 a pond, made a roaring sound, then took off soaring over the house. (Redwood
 City Times, Calif., 5/16/67, copy in NICAP files.)
 
-#### Page 39 of 105
-
 67 May 17
 Kamyshin
 Russia
@@ -3501,8 +3366,6 @@ had a superstructure with eight circular marks or portholes around its
 midsection. Above that was a glass-like dome. The object paced the bus for 2
 miles. (Clausen report, NICAP files; U.F.O Investigator, school bus Vol. IV,
 No. 1, May-June, p. 3.)
-
-#### Page 40 of 105
 
 67 June 05
 Uncasville
@@ -3593,8 +3456,6 @@ Argentina
 At 10:00 pm in Paso de los Libres, policemen saw 8-10 bright lights that flew
 in formation over a military post at an estimated 15,000 feet altitude. (La Voz
 Del Interior 6/26/67, NICAP files.)
-
-#### Page 41 of 105
 
 67 June 25
 Wilmington
@@ -3689,8 +3550,6 @@ New Jersey
 9:47 p.m. EDT. Three witnesses saw a solid disc with a thick rim and
 windows. Light was coming out of the windows. The object revolved and
 disappeared behind trees after 2-3 minutes. (NICAP report form.)
-
-#### Page 42 of 105
 
 67 July 12
 Bristol
@@ -3788,8 +3647,6 @@ and T.I. Dantseva, fellow of the Kurchatov scientific institute, observed a
 strange object along with four other people. The weather was clear at the time.
 The object looked like a flat disk with shining edge, flying at an altitude of
 some 350 feet at the speed of a propeller aircraft. (Ref. 3)
-
-#### Page 43 of 105
 
 67 July 18
 Amvrosiyevka
@@ -3892,8 +3749,6 @@ operator, saw an orange-red starlike light that began to move. (Fowler report,
 8/14/67, NICAP files; NICAP report forms; U.F.O. Investigator, Vol. IV, No.
 2, Oct. 1967, p. 3; Fowler, 1974, pp. 152-55, 349.)
 
-#### Page 44 of 105
-
 67 July 28
 Gilroy
 CA
@@ -3983,8 +3838,6 @@ speed in a V-formation. They stopped abruptly, hovered over the base at the
 radar station, then accelerated out over the Gulf of Mexico. The departure
 course appeared to follow the path of a radio navigation beam. (Hunkins letter,
 NICAP files.)
-
-#### Page 45 of 105
 
 67 August 06
 Wyoming Flats
@@ -4078,8 +3931,6 @@ Venezuela
 which three huge plate-shaped discs emerged and streaked out of sight.
 (U.F.O. Investigator, Vol. IV, No. 5, March 1968, p. 5.)
 
-#### Page 46 of 105
-
 67 August 25
 Roswell
 New Mexico
@@ -4164,8 +4015,6 @@ Time not reported. A couple saw an object like two saucers rim to rim (disc)
 that swooped down toward their car so that the witnesses expected a collision.
 Then it moved up into the sky and flew away. (Ca/gary Albertan, 10/18/67,
 NICAP files.)
-
-#### Page 47 of 105
 
 67 September 02
 Bentilee, Stoke-On-Trent,
@@ -4259,8 +4108,6 @@ dark-colored object with a band of light around its circumference. The object
 landed in a field, ascended, then moved out of sight. No traces of the landing
 were found in the field. (Evening News, Sault. Ste. Marie, 9/20/67, copy in
 NICAP files.)
-
-#### Page 48 of 105
 
 67 September 19
 Belgogradskaya
@@ -4360,8 +4207,6 @@ appeared to be preparing to land in the yard where the children were.
 Reportedly a similar object was seen several hours later over a nearby town.
 (Stars 6t Stripes, 10/15/67, NICAP files.)
 
-#### Page 49 of 105
-
 67 October 13
 Elnora and Mirror, Alberta bt.
 CANADA
@@ -4456,8 +4301,6 @@ CANADA
 diameter. The two outer lights were orange/amber and blinked or flickered.
 The center light was a bright red inverted teardrop shape that moved up and
 down at regular 2-3 second intervals. (Clausen report, NICAP files.)
-
-#### Page 50 of 105
 
 67 October 22
 Milledgeville
@@ -4555,8 +4398,6 @@ United Kingdom
 10:35 p.m. LT. A witness saw through a window a glowing orange-red, cigar-
 shaped object hovering low in the sky, a bluish-green area visible on its
 underside. It was a clear, starry night. (Stanway and Pace, 1968, p. 18.)
-
-#### Page 51 of 105
 
 67 November 03
 Verner, Ontario
@@ -4663,8 +4504,6 @@ Indiana
 object dropped down near three other witnesses in a car on a rural road
 northwest of the Philco-Ford Manufacturing Plant. (Don Worley files)
 
-#### Page 52 of 105
-
 67 November 29
 Quinan, Nova Scotia
 CANADA
@@ -4755,8 +4594,6 @@ beyond the fence line of the base and in the distant perimeter. The staff at the
 Air Force Base pretty much ignored these lights on the first night, wondering
 if it was just someone playing around, or not thinking a whole lot about it.
 (Brian Vike, HBCC UFO Research)
-
-#### Page 53 of 105
 
 68 August 00
 Fayette County
@@ -4869,8 +4706,6 @@ North Carolina
 2
 
 Domed UFO near nuclear plant.
-
-#### Page 54 of 105
 
 68 August 00
 Fayette County
@@ -4996,8 +4831,6 @@ Indiana
 Road and reported it to her parents. Her father went outside and saw the
 object, too. (See MADAR event Sept. 9)
 
-#### Page 55 of 105
-
 70 October 29
 Helleland
 Norway
@@ -5095,8 +4928,6 @@ lights observed approximately 300 ft across completely silent moved slowly
 app. 30- 40 mph. No. of Witnesses: 1; Duration: 10 min. (ufoevidence.org.,
 Unevaluated).
 
-#### Page 56 of 105
-
 71 October 12
 Mattawan
 Michigan
@@ -5187,8 +5018,6 @@ Object turned and flashed away at high speed. At this time there were three
 bright orange-red lights which illuminated the "saucer" which appeared to
 have "bat-like" wings. Observers watched with field glasses. (SL-60, page 9)
 
-#### Page 57 of 105
-
 72 August 11
 Bensonville
 Illinois
@@ -5247,8 +5076,6 @@ A rural family, who police say are responsible people, reported that a UFO "as
 big as a house" flew parallel to their car as they were driving down a country
 road at night. One witness said the object landed and took off twice in a
 nearby field. (NICAP UFOI, Oct 1972, page 3)
-
-#### Page 58 of 105
 
 72 October 09
 Vincennes, Indiana.
@@ -5355,8 +5182,6 @@ Seville (200 miles north of), Spain
 4:30 a.m. A man driving saw an object shaped like a pot (truncated cone)
 flying rapidly toward him at low altitude
 
-#### Page 59 of 105
-
 73 June 28
 Sandoval, Illinois.
 At 9:00 p.m. Mr. & Mrs. Sanders saw a cone-shaped UFO with multicolored
@@ -5379,42 +5204,22 @@ Illinois
 One report report came from a Charleston resident who said a UFO had landed
 "about 200 feet from my car
 
-73 September 00
-Brownsville
-Indiana
-2
-2:00 a.m. Main features of case; disk craft observed at very close range.
+73 September - 2:00 a.m. - Brownsville, Indiana. - Main features of case; disk craft observed at very close range.
 
-73 September 06
-bt. Penong and Ivy Tanks
-Australia
-2
+73 September 06 - between Penong and Ivy Tanks, Australia.
 The witness was a passenger in a semi-trailer on Route 1 enroute to Perth. She
 awoke to observe a brightly-lit egg-shaped object on the ground to the left of
 the road.
 
-73 September 08
-Hunter Army Air Field
-Georgia
-2
-"Saucer-shaped" object with flashing bright red and white lights dove at MP
-patrol vehicle
+73 September 08 - Hunter Army Air Field, Georgia.
+"Saucer-shaped" object with flashing bright red and white lights dove at MP patrol vehicle
 
-73 September 08
-Savannah
-Georgia
-2
+73 September 08 - Savannah, Georgia.
 A Savannah police officer saw “a large circular craft something like a flying
 saucer.
 
-73 September 14
-Cuesmes
-Belgium
-2
-At 7:45 p.m. a young woman and her father were driving through a mostly
-swampy area, when upon rounding a bend in the road they saw a luminous
-bright orange object shaped like a flower pot (truncated cone) hovering at low
-altitude
+73 September 14 - 7:45 p.m. - Cuesmes, Belgium.
+A young woman and her father were driving through a mostly swampy area, when upon rounding a bend in the road they saw a luminous bright orange object shaped like a flower pot (truncated cone) hovering at low altitude.
 
 73 September 16 - Elmwood Township, Michigan. Brightly glowing ellipse hovered near house. (UFOE II, page 341)
 
@@ -5475,8 +5280,6 @@ Laurel, Indiana.
 7:30 p.m. 3-Mins. Sounded like swarm of bees. Object hovered over little
 town at tree top height. Jiggled up and down and sideways. Looked like two
 saucers together with cabin on top.
-
-#### PAGE 60 THRU 69
 
 73 October 11 - 7:50 p.m. - Connersville, Indiana.
 Four witnesses reported two objects flew over at 400-800 feet and
@@ -5574,8 +5377,6 @@ round, silver craft hover over a field, then land.
 Johnson City, Tennessee.
 Several sightings of UFOs: circular copper-colored object that descended,
 hovered near ground, took off straight up.
-
-#### Page 61 of 105
 
 73 October 17
 Danielsville (Near), Georgia.
@@ -5682,8 +5483,6 @@ About 8:30 p.m. Near the Austrian-Bavarian border, Friedrich Lennartz, 33,
 and Peter Zettel, 29, had a close encounter of the second kind when a multi-
 colored, ovoid UFO.
 
-#### Page 62 of 105
-
 73 December 13
 Bradenton
 FL
@@ -5773,8 +5572,6 @@ Lincolnshire
 Illinois
 2
 No details but recorded as close encounter one with seven witnesses. (CUFOS)
-
-#### Page 63 of 105
 
 74 June 14
 Medellin Castle
@@ -5875,8 +5672,6 @@ Indiana
 10 white lights in string heading south to north was logged by the
 SKYWATCH patrol. (UFOFC, ran Ridge files).
 
-#### Page 64 of 105
-
 74 October 20
 Elkhart
 Indiana
@@ -5961,8 +5756,6 @@ distance of 24 ft. About the size of a car, it had a flange bearing 2 red & 2
 white lights surrounding a transparent, brightly lit dome, inside of which 3
 dark shadowy moving figures were visible. (Humcat 1975-3 Source: New
 Zealand Spaceview, Auckland # 66 Type: A)
-
-#### Page 65 of 105
 
 75 January 20 - 5:00 a.m. 
 Pike, Illinois.
@@ -6061,8 +5854,6 @@ Mehmke Hill, Montana.
 A UFO reported 20 feet over highway, size of car. (NIDS, Summary Report
 on A Wave of UFO/Helicopters and Animal Mutilations in Cascade County,
 Montana 1974-1977, Frame 16 of 24 Appendix 1)
-
-#### Page 66 of 105
 
 75 March 08
 Elmwood, Wisconsin.
@@ -6173,8 +5964,6 @@ France
 gasoline service station. It illuminated the ground as bright as day. (Source:
 Lumieres dans la Nuit, March 1976).
 
-#### Page 67 of 105
-
 75 June 27
 Pont-a-Mousson
 France
@@ -6268,8 +6057,6 @@ OCT 75. (Actual document below. See page 1 & 2)
 
 75 October 30 - Wurtsmith AFB, MI. Shiny Disc Hovers Over Restricted Area (Cat 2,9,10,11).
 
-#### Page 68 of 105
-
 75 November 01 Time not given - Monarch, Montana. UFO hovered 75' away, one foot off ground. (NIDS UFO 92).
 
 75 November 04 6:50 p.m. - Lussault-sur-Loire (near), France. A red disc-shaped object flanked by two nocturnal 
@@ -6328,8 +6115,6 @@ SAC men witnessed UFO on ground. (NIDS UFO 43).
 
 75 December 23 - 6:00 a.m. - Great Falls, Montana.
 Great Falls International Airport. Egg-shaped UFO on ground. (NIDS UFO 46).
-
-#### Page 69 of 105
 
 75 December 24
 Bar-sur-Aube, France.
@@ -6401,8 +6186,6 @@ A woman living near Lake City called the sheriff's office to report a "flying sa
 were dispatched to investigate and reported seeing a UFO hovering about 500 to 600 feet in the air. 
 (Reference: UFO INVESTIGATOR, July 1976, page 1)
 
-#### PAGE 70 OF 105
-
 76 February 14 - 7:20 p.m. - Fort Benton, Montana.
 Black Horse Lake. UFO, 500' high, landed near lake. (UFO 59 NIDS).
 
@@ -6431,21 +6214,17 @@ UFO, which was described as having 30 round holes on each side. It flew off
 toward the northwest. (Source: Francis Leblond, Phenomenes Spatiaux,
 September 1976, p. 12, citing Lumieres dans la Nuit, issue 163).
 
-76 March 25
-Belt, Montana.
-11:40 p.m. UFO descended over vehicle, 50' diameter. (UFO 77 NIDS)
+76 March 25 - 11:40 p.m. - Belt, Montana.
+UFO descended over vehicle, 50' diameter. (UFO 77 NIDS)
 
-76 March 28
-Villa park, Illinois.
+76 March 28 - Villa park, Illinois.
 No details on this close encounter (C1) (CUFOS)
 
-76 April 04
-Huntington, Indiana.
+76 April 04 - Huntington, Indiana.
 CE-1. Close Encounter listed but no details, one witness. (EGBA,673)
 
-76 April 07
-Kontich, Belgium.
-11:40 p.m. A couple driving their car saw a dirigible-shaped UFO cross the
+76 April 07 - 11:40 p.m. - Kontich, Belgium.
+A couple driving their car saw a dirigible-shaped UFO cross the
 road at a fairly low altitude. It had red and white spotlights around its
 perimeter. (Sources: J. Delaire, UFO Register, Volume 7 (1976), p. 31; Larry
 Hatch, U computer database, case 11691).
@@ -6487,8 +6266,6 @@ Spain
 Spain. It flew back over the city and surrounding area several times, then
 made a ninety-degree turn and flew off toward the south. (Source: Larry
 Hatch, U computer database, case 11764).
-
-#### Page 71 of 105
 
 76 July 16
 Tokyo
@@ -6587,8 +6364,6 @@ globes of light hovering near the highway. When he passed, the object
 (apparently dumbbell-shaped) followed and confronted him. (Lumieres dans
 La Nuit No. 169, November 1977.)
 
-#### Page 72 of 105
-
 76 October 28
 Evansville
 Indiana
@@ -6685,8 +6460,6 @@ a small tree less than 50 feet away. (Sources: David F. Webb & Ted Bloecher,
 HUMCAT: Catalogue of Humanoid Encounters, case 1977-8, citing Coral
 Lorenzen, APRO; Coral & Jim Lorenzen, APRO Bulletin).
 
-#### Page 73 of 105
-
 77 February 17
 Pembrokeshire
 Walws
@@ -6762,8 +6535,6 @@ A large domed disc-shaped object descended into canyon. A school teacher
 and fifteen students witnessed the descent, and said that they could see figures
 inside the craft. It was seen again one hour later. (Source: Larry Hatch, U
 computer database, case 12693).
-
-#### Page 74 of 105
 
 77 May 07
 Undersaker, Jamtland
@@ -6850,8 +6621,6 @@ On this night a man with a flat tire was stopped on the highway between
 Abadan and Ahvaz, Iran when he suddenly felt heat from a "huge, bright
 object" that was very close to him. (Source: Allan Hendry, International UFO
 Reporter, January 1981, p. 15).
-
-#### Page 75 of 105
 
 77 July 00
 Connersville
@@ -6940,8 +6709,6 @@ toward the men and the officers turned off the light because they became
 nervous at seeing the object's response to their light. (Reference: UFO
 INVESTIGATOR, October 1977, page 4)
 
-#### Page 76 of 105
-
 77 July 22
 Croix-en-Plaine
 France
@@ -7025,8 +6792,6 @@ A red, disc-shaped object came over land from the direction of the sea. It
 followed a car with three people inside. The headlights on the car dimmed but
 did not go out during the sighting, which ended when the UFO veered off into
 the sky.
-
-#### Page 77 of 105
 
 77 December 13
 Leitchville, Victoria
@@ -7116,8 +6881,6 @@ nearly overhead. At destination a few seconds later she noted a silver disc-
 shaped object which reversed direction, moved forward again and moved off
 behind building to which she was parked.
 
-#### Page 78 of 105
-
 78 January 27
 Fordsham, Cheshire County
 United Kingdom
@@ -7203,8 +6966,6 @@ with a slight wobbling motion. He watched as a mist-like vapor assumed the
 shape of a human-like figure that remained suspended above the ground. The
 figure was about 170 meters tall. The cat also apparently observed the
 spectacle, since the animal's fur stood on end and it quickly scurried from the scene
-
-#### Page 79 of 105
 
 78 May 10
 Pelotas, Rio Grande do Sul
@@ -7297,8 +7058,6 @@ which is below the side of the road. The top was rounded in the form of a
 dome, surmounted by a white light. As he drove by he saw through a
 transparent wall in the UFO numerous human like figures wearing helmets and
 tight-fitting suits. Ground traces were found at the site.
-
-#### PAGE 80 OF 105
 
 78 July 11
 Can Cifre, Ibiza
@@ -7412,8 +7171,6 @@ Two very bright but distant lights approached four witnesses, then moved
 toward them, hovering within 500-600 over some power lines. All natural
 sounds stopped at this point.
 
-#### Page 81 of 105
-
 78 September 01
 Llanerchymedd, Anglesey, Wales
 United Kingdom
@@ -7494,8 +7251,6 @@ near his home when he came to an open field and spotted a large light brown
 object shaped like a shoeshine box on the ground. Lighted windows
 surrounded the craft. He approached to within three feet and saw six to seven
 humanoid beings inside.
-
-#### Page 82 of 105
 
 78 October 30
 Carmo Da Cachoeira, Minas Gerais
@@ -7592,8 +7347,6 @@ a mushroom was found apparently having crashed. The body of a short dwarf-
 like humanoid was found inside, which was delivered for autopsy to the
 scientific research institute in Novosibirsk.
 
-#### Page 83 of 105
-
 78 December 08
 Portegrandi
 Italy
@@ -7653,10 +7406,7 @@ Two soldiers on guard duty at the AFB saw a UFO with pulsating lights
 maneuver and hover near them. As the object was leaving a strange being shot
 up from the ground skywards, quickly disappearing from sight.
 
-78 December 14
-Brewer
-Maine
-2
+78 December 14 - Brewer, Maine.
 A man drove in a daze along a very desolate stretch of road. All of a sudden
 his car's motor went completely dead and he coasted to a stop. He turned to his
 right and slightly ahead of his car was a huge, long dark rectangular object,
@@ -7664,42 +7414,25 @@ about 50 feet from the road. He also felt himself sink into a trance. He
 remained fully aware but could not move a muscle. He then heard a voice say:
 "Do not be afraid.
 
-78 December 14
-Park Ridge
-Illinois
-2
+78 December 14 - Park Ridge, Illinois.
 Two 12-year-old girls in Park Ridge who were tobogganing in the city park
 saw a saucer-shaped object with a row of flashing red lights on the top and
 bottom and flashing yellow lights in between.
 
-78 December 14
-London Mills
-Illinois
-2
+78 December 14 - London Mills, Illinois.
 On Highway 116 a tubular-shaped craft hovered and circled a car being driven
 by two teenage girls. The craft circled the car "close enough to have touched
 it."
 
-78 December 14
-Pomeroy
-Washington
-2
+78 December 14 - Pomeroy, Washington.
 A large UFO paced a car with three women inside. The object had two
 transparent blue lights and followed them to one of their homes.
 
-78 December 14
-Sarandi del Yi
-Uruguay
-2
+78 December 14 - Sarandi del Yi, Uruguay.
 A UFO with bright red lights suddenly appeared and started to circle the car
 driven by Mr. La Bandera and his two passengers.
 
-#### Page 84 of 105
-
-78 December 15
-Catania
-Italy
-2
+78 December 15 - Catania, Italy.
 Two young boys were playing in a yard on the island of Sicily, near a large
 TV antenna. The sky darkened and then a large disc-shaped craft approached
 and tilted at an angle, just above the TV antenna. A bright beam of light shot
@@ -7708,10 +7441,7 @@ beam. The being was described as "ugly" with two large eyes and two antenna-
 like protrusions on its head. A second similar being reportedly descended
 carrying a "laser" type gun and shot at a rock causing it to burn and explode.
 
-78 December 16
-Francavilla
-Italy
-2
+78 December 16 - Francavilla, Italy.
 A college coed saw an ovoid UFO surrounded by a white mist. It descended
 onto the surface of the sea and became a very bright flourescent white light
 that reflected off the surface of the water. She next noticed two short figures
@@ -7719,25 +7449,16 @@ standing in the garden at the adjacent apartment. They were very thin with
 large squarish heads and large feet. Both were wearing dark gray tight-fitting
 uniforms.
 
-78 December 16
-Abbington
-Indiana
-2
+78 December 16 - Abbington, Indiana.
 Dark object three times the size of a moon came over low above trees and
 hovered near auto causing its motor and radio to stop. As it hovered in front of
 the auto three red lights were seen and a large white light was on the rear.
 
-78 December 31
-Posada
-Italy
-2
+78 December 31 - Posada, Italy.
 A 3-meter in diameter glowing sphere appeared over a marsh. It had dark
 triangular spots that moved back and forth on the surface of the object.
 
-78 December 31
-Homestead
-FL
-2
+78 December 31 - Homestead, Florida.
 Three men saw a silver disc hovering only one block away from one of their
 residences in Homestead.
 
@@ -7750,9 +7471,7 @@ he worked near Denbigh when he observed a UFO at an altitude of 100-150
 feet.
 
 79 January 03
-Miami
-FL
-2
+Miami, Florida.
 Mr. Filiberto Cardenas, age 45, was driving on Okeechobee Road just north of
 Miami, Florida with three family friends when the car engine suddenly failed.
 He and another man got out of the car to check under the hood when a large
@@ -7761,83 +7480,52 @@ witness vanished in plain sight of the others, apparently taken up into the
 object by a beam of light.
 
 79 January 05
-Bannalec, Finistere
-France
-2
+Bannalec, Finistere, France.
 A 15 meter in diameter circular object hovered near the ground at around 10
 p.m. for three minutes. It had a blue halo, and shot away very fast. (Source:
 Lumieres dans la Nuit, February 1979).
 
-79 January 05
-Sturbridge
-MA
-2
+79 January 05 - Sturbridge, Massachusetts.
 CE-II case with EM effects on car. (Raymond Fowler investigation report).
 
-79 January 08
-Rome City
-Indiana
-2
+79 January 08 - Rome City, Indiana.
 Mr. Marion Ritchie and his wife viewed a UFO on County Road 138 for a
 continuous 5 minutes. Mr. Ritchie, a credible man in his community, viewed a
 cylinder-shaped object over an open field about 50' from the road with lights
 of white, red, and green.
 
-79 January 08
-San Croce Sull'Arno
-Italy
-2
+79 January 08 - San Croce Sull'Arno, Italy.
 In the Tuscany region of Italy a 40-meter wide domed disc with an antenna
 flew over a farm at only ten meters above the ground. The farm animals were
 panicked and a tree bent over as the object passed. (Source: Maurizio Verga,
 ITACAT Italian UFO catalogue).
 
-#### Page 85 of 105
-
-79 January 08
-Tunis
-Tunisia
-2
+79 January 08 - Tunis, Tunisia.
 A group of people witnessed a small disc, about 1.5 meters in size, hovering
 near a lake for 10 minutes. It then shot away and was gone in a split second.
 (Sources: Lumieres dans la Nuit, February 1979).
 
-79 January 13
-Viterbo
-Italy
-2
+79 January 13 - Viterbo, Italy.
 A farmer spotted a large fiery red sphere descend and land in a nearby pasture.
 The sphere changed color to a bright orange, then it began to dim revealing a
 two-meter wide metallic sphere. A small man wearing a silvery white suit
 emerged from the object and walked around the object, frequently bending
 down as if he was picking things up.
 
-79 January 18
-Metzeral
-France
-2
+79 January 18 - Metzeral, France.
 A two-meter wide orange disc-shaped UFO made two passes over two
 witnesses. The UFO made a buzzing sound and had lights at both ends. Both
 witnesses' eyes hurt after the close encounter.
 
-79 January 18
-Lusiana
-Italy
-2
+79 January 18 - Lusiana, Italy.
 A witness's car engine died when an ovoid UFO landed nearby. A door in the
 craft opened and two humanoids emerged. They reportedly had vibrating
 antennae-like ears or antennae on the sides of their heads.
 
-79 January 24
-Tyler
-Texas
-2
+79 January 24 - Tyler, Texas.
 Close-range sighting and humanoid encounter.
 
-79 January 24
-Lindale (near)
-Texas
-2
+79 January 24 - Lindale (near), Texas.
 20-year-old John Scott Cates had stopped his car and gotten out to relieve
 himself when a blue beam of light from the sky struck him. It caused his hair
 to stand up like an electric static charge. Two UFOs appeared, and he
@@ -7845,10 +7533,7 @@ experienced a six-hour long memory lapse. His next recollection was being
 back in his car, where he noticed that his engine restarted when a ringing noise
 sounded.
 
-79 January 24
-Toquilla (near Tunja)
-Colombia
-2
+79 January 24 - Toquilla (near Tunja), Colombia.
 A dentist and three students were traveling by car when their engine suddenly
 stalled. They then saw two metallic disc-shaped objects land on tripod landing
 gear nearby, and three men wearing tight fitting silvery outfits and large
@@ -7862,29 +7547,20 @@ A 1.5-meter long ovoid hovered over a house in Vannes. A UFO witness to
 repeated UFO encounters experienced lasting physiological effects due to the
 close approach of 2 disc-shaped UFOs.
 
-79 January 29
-Cornwall County
-United Kingdom
-2
+79 January 29 - Cornwall County, United Kingdom.
 In the early morning hours a married couple in Bissoe Truro, Cornwall
 County, England were awakened to find their bedroom lit up brightly. One of
 the witnesses looked out the window and was amazed to see a bright hovering
 oval-shaped craft. Inside could be seen two human-looking men with long
 wavy blond hair.
 
-79 February 08
-Wiltshire (near)
-United Kingdom
-2
+79 February 08 - 6:00 p.m. - Wiltshire (near) United Kingdom.
 6:00 PM. An oval-shaped flying object approached a car driving between
 Broad Hinton and Clyffe Pypard in Wiltshire, England. It came to within 150
 to 300 feet at its closest approach. It had a cluster of very bright strobe-like
 lights that lit up ground.
 
-79 February 26
-Serodino, Santa Fe province
-Argentina
-2
+79 February 26 - Serodino, Santa Fe province, Argentina.
 Ernaldo Camusoni, age 49, was clearing an overgrown field at the entrance to
 a farm in Serodino late in the evening when everything became illuminated
 behind him, turning the darkness into day. When he turned around he saw an
@@ -7892,68 +7568,41 @@ approaching object land 40 meters away from him. As he approached the
 object, he saw a strange luminous figure emerge from the rear of the craft. The
 whole encounter lasted five minutes. Ground traces were found the next day.
 
-#### Page 86 of 105
-
-79 March 02
-Rivera
-Uruguay
-2
+79 March 02 - Rivera, Uruguay.
 People watched an ovoid object dive at a truck and circle a radio tower. The
 encounter lasted for a few minutes; helmeted figures were reportedly seen
 onboard the craft.
 
-79 March 06
-Westminster
-SC
-2
+79 March 06 - Westminster, South Carolina.
 Dome-shaped object skimmed tree-tops, moved up and down, illuminated
 area. Similar object hovered over highway, swept area with light beam
 (section VI).
 
-79 April 07
-Bigand
-Argentina
-2
+79 April 07 - Bigand, Argentina.
 Several cars experienced electrical system failures on highway 33 in Bigand,
 Argentina. Mr. Celotto, a farmer, saw an eight meter wide disc land, and
 circular ground traces were found later in a soybean field.
 
-79 April 19
-Croy
-United Kingdom
-2
+79 April 19 - Croy, United Kingdom.
 Two witnesses to a UFO in Croy ran from their car when the brightly lit object
 passed low overhead. They reported an abnormal silence, as they could no
 longer hear the car engine or the door slam when they fled.
 
-79 April 27
-St. Jacques de Nehou, Manche
-department
-France
-2
+79 April 27 - St. Jacques de Nehou, Manche department, France.
 A four meter in diameter, intense reddish-orange colored sphere with "stiff
 waving arms" or appendages was seen over a farm.
 
-79 May 16
-Baependi, Minas Gerais State (near)
-Brazil
-2
+79 May 16 - Baependi, Minas Gerais State (near), Brazil.
 Sr. dos Santos next saw an object descend towards the ground in a clearing.
 He approached to within 180 meters, and saw that the object was shaped like a
 "telephone booth" about 1 meter in height.
 
-79 May 16
-Charleston
-SC
-2
+79 May 16 - Charleston, South Carolina.
 A mechanic felt compelled to return to a spot where he had previously seen a
 UFO. A disc-shaped craft landed, and he was given a metal bar as a gift, along
 with the message that the occupants will return again.
 
-79 May 19
-Bukit Mertajam
-Malaysia
-2
+79 May 19 - Bukit Mertajam, Malaysia.
 Six school children reported sighting a landed object and four tiny humanoid
 figures near it. The creatures were only about 4 inches tall. One of the students
 attempted to catch one of the creatures but was shot in the hand.
@@ -7966,47 +7615,30 @@ A nocturnal light came down and landed behind a store in the town of
 Charleston, Missouri. A neon sign was effected and a clock in the vicinity was
 later found to be 18 minutes slow.
 
-79 May 25
-Colusa
-CA
-2
-1:10 AM. A silver colored, heel-shaped or bullet-shaped object hovered
+79 May 25 - 1:10 p.m. - Colusa, California.
+A silver colored, heel-shaped or bullet-shaped object hovered
 between fifty and five hundred feet above some trees near the Sacramento
 River for three minutes. It made a sound like an electric motor as it moved
 very slowly toward the two witnesses, Ruben and Carlos Genera. Many
 animals reacted to its presence.
 
-79 May 26
-Colusa
-CA
-2
+79 May 26 - Colusa, California.
 Two fishermen observed a hemispherical object with blinding white headlights
 and a row of body lights. It hovered in one spot for 2-3 minutes, then flew
 overhead emitting a humming sound like an electric generator.
 
-79 May 26
-Kulim
-Malaysia
-2
+79 May 26 - Kulim, Malaysia.
 A disc with three legs for landing gear hovered just a half a meter above the
 ground. The witness was temporarily blinded by beams of light from the
 object.
 
-79 June 12
-Pine Ridge
-SC
-2
+79 June 12 - Pine Ridge, South Carolina.
 Members of a rock band practicing in a barn stepped outside to watch an ovoid
 shaped object hovering low over the containment building and smokestack of
 the Carolina Power & Light nuclear power plant one half mile away to their
 northeast.
 
-#### Page 87 of 105
-
-79 June 18
-Mirassol, Sao Paolo State
-Brazil
-2
+79 June 18 - Mirassol, Sao Paolo State, Brazil.
 Sr. A. Ferreira was returning home from his job as a security guard when a
 metallic oval-shaped craft landed on three legs near his home. Three
 humanoids came out of the craft and paralyzed him with red beams of light,
@@ -8014,10 +7646,7 @@ from boxes that they carried on their chests. These humanoid beings also
 carried boxes on their backs and had an insignia on their chests. He was
 floated onboard the craft alongside and once inside he believed he passed out.
 
-79 June 19
-Rauma
-Finland
-2
+79 June 19 - Rauma, Finland.
 A man and a woman saw a silvery object with a dome on top emitting a blue
 beam of light into a nearby forest. The woman went to investigate, and saw
 the object, which was about one meter in diameter, at close range. Inside the
@@ -8025,10 +7654,7 @@ dome were two very small creatures with large eyes and frog-like skin. When
 she started to touch the object, she was temporarily blinded by a bright light
 and the craft sped away.
 
-79 June 22
-Gorgona (offshore of)
-Italy
-2
+79 June 22 - Gorgona (offshore of), Italy.
 The yacht Rainbow II was heading for Corsica,. On board was the owner of
 the boat, his wife and children and a crew of 11 people. About three miles
 ahead of the prow of the boat they saw a black cylindrical shape. This object
@@ -8038,34 +7664,21 @@ direction, the yacht instead drifted about 12 miles south and ended up in
 Bastia. Another strange occurrence was that the dog on board started barking
 and appeared scared and terrified.
 
-79 June 26
-Wheeling
-Illinois
-2
+79 June 26 - Wheeling, Illinois.
 A dog started barking when a six-foot diameter balloon-shaped object glowed
 and hovered over the yard of a home in Wheeling, Illinois. The object flew
 toward the southwest.
 
-79 July 13
-Santa Clarita Valley
-CA
-2
+79 July 13 - Santa Clarita Valley, California.
 Ed knew immediately that the object was not a helicopter or a plane-it was
 flatter and wider with lights around the outside of the main front area. He ran
 to the house, calling his family, but only his wife joined him. The object, some
 75-100 feet in diameter, was now directly over their house and pool.
 
-79 July 21
-West Plains
-Missouri
-2
-Six witnesses to a close encounter with a capsule-shaped object for several
-minutes.
+79 July 21 - West Plains, Missouri.
+Six witnesses to a close encounter with a capsule-shaped object for several minutes.
 
-79 July 25
-Canoga Park
-CA
-2
+79 July 25 - Canoga Park, California.
 A large white light made several passed at a car. One hour later a diffuse white
 ball of light maneuvered in the sky for 30 minutes over the Chatsworth
 Reservoir. At 3:15 a housewife and cocktail waitress was abducted while
@@ -8083,38 +7696,25 @@ visible through transparent dome (section XII).
 79 August 29 - Ernestowo, Poland. Silvery cigar with orange light and square windows approached, hovered, and
 finally sped away over horizon (section IX).
 
-#### Page 88 of 105
-
 79 September 02 - Petushka, Russia. Witness was out picking mushrooms and saw a landed UFO which effected the
 ground.
 
-79 September 03
-Gateshead
-United Kingdom
-2
+79 September 03 - Gateshead, United Kingdom.
 Following a series of low level sightings in Gateshead by the main witness and
 her family, the woman awoke in the middle of this night to see a small
 metallic disc-shaped object inside her bedroom.
 
-79 September 14
-Canoga Park
-CA
-2
+79 September 14 - Canoga Park, California.
 Disc with flamelike jets around perimeter hovered ahead of car, darted from
 point to point; took off at "very high speed" (section X).
 
-79 September 14
-Oakenholt, Wales
-United Kingdom
-2
+79 September 14 - Oakenholt, Wales, United Kingdom.
 A beam of light shone through the witness's bedroom window and she
 suddenly felt dizzy. She then felt herself being levitated through some form of
 a tunnel and encountered two aliens in a field.
 
-79 September 19
-Barrio La Gloria, Mendoza province
-Arg
-2
+79 September 19 -
+Barrio La Gloria, Mendoza province, Argentina.
 A man was surprised to see a circular gray metallic object on the ground near
 his house. A short human-like figure appeared next to the craft.
 
@@ -8132,72 +7732,49 @@ A silver cigar-shaped object approached a cattle lot two miles north of Dexter.
 It was only 150 feet above the ground, had no wings or windows, and made no
 sound.
 
-79 September 23
-Nord
-France
-2
+79 September 23 - Nord, France.
 A near collision occurred on the D136 highway between an automobile and a
 six-meter wide disc on the highway.
 
 79 September 25
-Talco
-Chile
-2
+Talco, Chile.
 In a farming region of Talco a peasant out plowing the fields encountered a
 landed disc-shaped craft. A tall humanoid emerged from the object and briefly
 chased the peasant. The humanoid caught up with the farmer placing its hand
 on his shoulder.
 
 79 September 26
-Monsey
-New York
-2
+Monsey, New York.
 A witness in Monsey watched a saucer-shaped craft hover above some nearby
 power lines. The craft emitted a soft humming sound and was about 35 feet in
 diameter. Then he saw a shadowy figure.
 
 79 November 20
-Laborie
-France
-2
+Laborie, France.
 A witness stopped his car at a certain spot. He then saw a diamond-shaped
 UFO hovering and maneuvering in front of him at a low altitude.
 
-79 December 02
-Mt. Vernon
-Indiana
-2
+79 December 02 - Mt. Vernon, Indiana.
 Six witnesses observed a descending object for 15 minutes that went from a
 bright distant light in the NW to a pair of bright headlights to what appeared to
 be a huge jet aircraft with external lights, but with NO sound
 
-79 December 02
-Mt. Vernon & Evansville (btn)
-Indiana
-2
+79 December 02 - Mt. Vernon & Evansville (btn), Indiana.
 Blimp-like object seen my motorists on Hwy. 62 between Mt. Vernon &
 Evansville.
 
 79 December 04
-Vastervik
-Sweden
-2
+Vastervik, Sweden.
 A young woman was taking a walk when she suddenly became paralyzed and
 unable to move. Nearby, she could see a luminous object hovering close to the
 ground. Two five-foot tall thin humanoids appeared from behind the object.
 
-79 December 10
-Grays Harbor
-Washington
-2
+79 December 10 - Grays Harbor, Washington.
 A fireball or missile flew in over the Grays Harbor area from the sea, executed
 a 180-degree turn, and headed west. It crashed in a clear-cut forest near Elk
 River, on the south side of the bay.
 
-79 December 10
-Caravac de la Cruz
-Spain
-2
+79 December 10 - Caravac de la Cruz, Spain.
 A UFO with blue lights and a light green hue approached a family in their car
 at a low height. The driver stopped and signaled with his headlights. The UFO
 responded by flashing its lights.
@@ -8208,8 +7785,6 @@ France
 2
 A multi-colored disc passed by fast a residential neighborhood in Romans,
 France at a low altitude, spinning as it went. It left behind a luminous trail.
-
-#### Page 89 of 105
 
 79 December 19
 Lunel
@@ -8338,8 +7913,6 @@ CANADA
 A silent, fifteen-meter diameter round object hovered only 500 feet away. A
 dog hid in fear. A six-meter long indentation was discovered on the ground.
 
-#### PAGE 90 OF 105
-
 80 July 16
 Pecos
 New Mexico
@@ -8437,8 +8010,6 @@ rectangular windows around the circumference, and was struck by a light
 beam on the chest and felt paralyzed. Perceived communication, apparent
 abduction, burn marks on chest corresponding to light beam position.
 
-#### Page 91 of 105
-
 80 December 15
 London
 United Kingdom
@@ -8531,8 +8102,6 @@ of his animals causing a commotion. Looking out from his hut he saw a
 "beautiful" blue light hovering over a field about 20 meters away. His animals
 were effected and he recalled an abduction experience.
 
-#### Page 92 of 105
-
 81 March 00
 Birstall West Yorkshire
 United Kingdom
@@ -8615,8 +8184,6 @@ MN
 Two-foot diameter aluminum-like disc hovered a few feet off road about 40
 feet away; climbed rapidly through sky and disappeared in distance (section
 IV).
-
-#### Page 93 of 105
 
 81 April 15
 Mount Sunapee
@@ -8709,8 +8276,6 @@ the ground in Chia-Li, Taiwan. It expelled a mist, then took off and shot away
 to the north. (Source: Paul Dong and Wendelle Stevens, UFOs over Modern
 China, p. 272).
 
-#### Page 94 of 105
-
 81 July 11
 Port Byron
 Illinois
@@ -8798,8 +8363,6 @@ side of the lake. While he slept that night a very loud noise awakened him,
 looking out of the tent he saw a bright sphere descending rapidly overhead.
 Through an open port he was briefly able to see a humanoid figure apparently
 wearing a green outfit.
-
-#### Page 95 of 105
 
 81 September 12
 Trino Vercellese, Piemonte
@@ -8900,8 +8463,6 @@ then saw a lighted disc shaped craft with red lights shining on its top and
 multicolored lights on the bottom fly overhead and disappear from sight. They
 saw a four-foot tall human like figure float over a nearby fence and come
 towards them.
-
-#### Page 96 of 105
 
 820000
 Voronezh (near)
@@ -9004,8 +8565,6 @@ of light onto the ground. The UFO came very near the ground and may have
 landed temporarily, then rose up and flew off over the witness's house and out
 of sight.
 
-#### Page 97 of 105
-
 82 May 22
 Cleveland
 Texas
@@ -9099,8 +8658,6 @@ shaped craft on the ground on a nearby field. Next to the object stood two
 short man-like figures, described as very thin, with long arms, and elongated
 egg shaped heads.
 
-#### Page 98 of 105
-
 82 April 03
 Bolingbrook
 Illinois
@@ -9183,8 +8740,6 @@ got up from bed she saw a large glowing object outside her window. She saw
 two man-like figures staring at her from inside the craft, and a small table
 inside the object.
 
-#### Page 99 of 105
-
 82 July 00
 Mersin, Turkey.
 2
@@ -9263,8 +8818,6 @@ craft hovering above the barnyard. On the ground below several small
 shadowy figures could be seen moving around. Suddenly thee of the short
 figures appeared at the bedroom door. The beings took the witnesses by their
 hands and led them to the hovering disc shaped object at the orchard.
-
-#### PAGE 100 OF 105
 
 82 June 10
 Madbury
@@ -9363,8 +8916,6 @@ interference.
 a huge disc-shaped UFO. Their car turned unaccountably onto an unknown dirt road, and they had a possible missing 
 time experience. The entire experience lasted 50 minutes. (Source: Lumieres dans la Nuit, issue 317).
 
-#### Page 101 of 105
-
 83 April 28
 Huepul, Chile. A UFO came along and flew over a soccer match in progress in Huepul, Chile at only 5 meters above 
 the field. It stopped the game as the 200 people present stared at the incredible sight before them. (Source: FSR, 
@@ -9428,8 +8979,6 @@ MA
 the witness in bed. When the being had left a three-foot long by 18" cylinder
 shot straight up into the sky outside. (Source: MUFON UFO Journal, August
 1991).
-
-#### Page 102 of 105
 
 84 January 08
 Cozad (outside)
@@ -9532,8 +9081,6 @@ New Jersey
 2
 6:30 PM. A young couple sighted an orange ball descending through the cloud
 layer and appeared to land on a ridge behind the tree line.
-
-#### Page 103 of 105
 
 84 February 03
 Tingsryd
@@ -9639,115 +9186,57 @@ cowered, and she was temporarily blinded by a ball of light from the object
 that struck her and entered her body, and she felt the warmth emitted by it but
 at the same time felt a sensation of calm.
 
-#### Page 104 of 105
-
-84 April 25
-Napa
-CA
-2
-9:55 PM. Structural details of a UFO were observed by three witnesses in a
+84 April 25 - 9:55 p.m. - Napa, California. - 
+Structural details of a UFO were observed by three witnesses in a
 car as the UFO passed over them at 100 feet while they were driving down
 American Canyon Road in Napa, California.
 
-84 April 26
-Macomer, Sardinia (west of)
-Italy
-2
-11:00 AM. A humanoid wearing an odd helmet was seen in the woods west of
+84 April 26 - 11:00 a.m. - Macomer, Sardinia (west of), Italy. 
+A humanoid wearing an odd helmet was seen in the woods west of
 Macomer, Sardinia, Italy by two children. A disc-shaped object rose from the
 forest floor, then flew off to the east-northeast.
 
-84 May 06
-Williston
-FL
-2
+84 May 06 - Time not given. - Williston, Florida.
 Time not given. A 13-year-old boy working at a kennel in Williston, Florida
 heard a humming noise, and noticed that the dogs were attempting to hide in
 their pens and whining. As he went out to investigate the area turned red with
 illumination, and a bright red disc-shaped object hovered only 20 feet over his
 head.
 
-84 May 31
-Hawthorne
-New York
-2
-8:15 PM. A V-Shaped formation of 15 lights, estimated to be the size of a
-Boeing 747 airliner if all connected to one object, passed directly over the
-home of an IBM engineer in Hawthorne, Westchester County, New York It
-made no sound as it passed overhead except a faint humming.
+84 May 31 - 8:15 p.m. - Hawthorne, New York. - A V-Shaped formation of 15 lights, estimated to be the size of a Boeing 747 airliner if all connected to one object, passed directly over the home of an IBM engineer in Hawthorne, Westchester County, New York. It made no sound as it passed overhead except a faint humming.
 
-84 May 31
-Pleasantville
-New York
-2
-8:30 PM. A V-shaped object was seen from Route 117 in Pleasantville, New
-York. It was reported to be larger than a football field, and it followed a car
-being driven on the Taconic Parkway.
+84 May 31 - 8:30 p.m. - Pleasantville, New York. - A V-shaped object was seen from Route 117 in Pleasantville, New York. It was reported to be larger than a football field, and it followed a car being driven on the Taconic Parkway.
 
-84 June 04
-Staunton
-VA
-2
+84 June 04 - Staunton, Virginia - 
 A very luminous object shone a bright light into the window of a mobile home
 in Staunton, Virginia. The UFO was football-shaped, about the size of a car,
 and made a faint buzzing noise.
 
-84 June 06
-Pine Bush
-New York
-2
+84 June 06 - Pine Bush, New York. - 
 UFO investigators went to a Jewish cemetery in the UFO hotspot of Pine
 Bush, New York. A close encounter with a landed, delta-shaped UFO scared
 them away.
 
-84 June 14
-Indian Pt Nuclear Plant
-New York
-2
-
-10:30 PM. Guards at the Indian Point nuclear power plant on the Hudson
+84 June 14 - 10:30 p.m. - Indian Pt Nuclear Plant, New York. - 
+Guards at the Indian Point nuclear power plant on the Hudson
 River, New York sighted a dark disc-shaped object with lights, 30 feet in
 diameter, that stayed over the nuclear reactor for 15 minutes
 
-84 June 22
-Adelanto
-CA
-2
-11:00 AM. An object shaped like the rounded-off "tail fin" of an airplane with
-a very short fuselage came straight down over a woman's car in her driveway
+84 June 22 - 11:00 p.m. - Adelanto, California. - 
+An object shaped like the rounded-off "tail fin" of an airplane with a very short fuselage came straight down over a woman's car in her driveway
 
-84 July 15
-Detroit
-Maine
-2
-9:05 PM. Carol Cloukey and Robert White had been on their way to Pittsfield,
-Maine for dinner. After traveling about a mile they rounded a bend and Carol,
-who was driving, was the first to see a bright yellowish-orange light. Suddenly
-the light made a perfect vertical drop in mid-air. They sped up to get ahead of
-the object, but the light dropped lower again, and was now dead center above
-the car windshield.
+84 July 15 - 9:05 p.m. - Detroit, Maine. - 
+Carol Cloukey and Robert White had been on their way to Pittsfield, Maine for dinner. After traveling about a mile they rounded a bend and Carol, who was driving, was the first to see a bright yellowish-orange light. Suddenly the light made a perfect vertical drop in mid-air. They sped up to get ahead of the object, but the light dropped lower again, and was now dead center above the car windshield.
 
-84 July 24
-Indian Pt Nuclear Plant
-New York
-2
+84 July 24 - 9:00 p.m. - Indian Pt Nuclear Plant, New York. - 
+A very large boomerang-shaped UFO hovered only 300 feet over an active vent of the Indian Point Nuclear Plant cooling tower for 15 minutes on the Hudson River in Westchester County, New York.
 
-9:00 PM. A very large boomerang-shaped UFO hovered only 300 feet over an
-active vent of the Indian Point Nuclear Plant cooling tower for 15 minutes on
-the Hudson River in Westchester County, New York.
+84 October 23 - 8:30 p.m. - Tyrone (north of), Pennsylvania. - A disc-shaped object with an amber light on the bottom and red
+lights in a circle on top of the disc buzzed a witness driving in a car.
 
-84 October 23
-Tyrone (north of)
-PA
-2
-8:30 PM. A disc-shaped object with an amber light on the bottom and red
-lights in a circle on top of the disc buzzed a witness driving in a car
-
-84 October 24 - Park Rapids, Minnesota. Diamond-shaped object, blue & white. One humanoid four feet tall, large
+84 October 24 - Park Rapids, Minnesota. - Diamond-shaped object, blue & white. One humanoid four feet tall, large
 head, large eyes, slender arms. Occupant outside of hovering object. Approached farm. Stood in light for ten 
 minutes, returned to craft and departed. (Humrep, Molon)
-
-#### Page 105 of 105
 
 84 November 26 6:15 p.m. - Gloucester, Massachusetts. A UFO seen by Mr. & Mrs. Hoel in Gloucester, Massachusetts
 seemed to respond to their comments while flying over Magnolia Bay. The dark triangular object, 150 feet wide, 
@@ -9756,50 +9245,46 @@ with a canopy underneath, flew at 125 feet altitude and passed over Magnolia Bay
 84 Dember 30 10:00 p.m. - Martinsburg, West Virginia. A 30 foot long X-shaped object paced a car for 20 minutes along a
 highway in Martinsburg, West Virginia. There were five lights on the bottom of the craft and it made a humming noise.
 
-85 September 15 - Bagshot Heath, Surrey, United Kingdom. Disc-shaped object hovered ahead of car; second object paced 
+85 September 15 - Bagshot Heath, Surrey, United Kingdom. - Disc-shaped object hovered ahead of car; second object paced 
 alongside car, bright illumination of area (section IX)
 
-86 January 07 - Butler, Pennsylvania. UFO emitted six light beams toward ground. About 20 minutes later in
+86 January 07 - Butler, Pennsylvania. - UFO emitted six light beams toward ground. About 20 minutes later in
 Pittsburgh, silver-gray disc with body lights hovered, mist formed around it. Object tilted, moved out of 
 sight (section IX).
 
-87 February 07 - Potters Mills, Pennsylvania. Motorists encountered hovering large oval object, lights around perimeter,
+87 February 07 - Potters Mills, Pennsylvania. - Motorists encountered hovering large oval object, lights around perimeter,
 terrain brightly illuminated (section IX).
 
-87 July 22 - Hawesville, Kentucky. The Hawesville Encounter.
+87 July 22 - Hawesville, Kentucky. - The Hawesville Encounter.
 
-87 September 01 - Bangor, Maine. Ellipse with windows beamed light down on children in playground, two
+87 September 01 - Bangor, Maine. - Ellipse with windows beamed light down on children in playground, two
 humanoids visible in object (section XII).
 
-88 January 19 - Launceston, Arkansas. Glowing red object followed car, moved up and down as if following contours
+88 January 19 - Launceston, Arkansas. - Glowing red object followed car, moved up and down as if following contours
 of local terrain (section X).
 
-89 August 31 - Butler Township, Pennsylvania. Luminous mushroom-shaped object hovered over field, two smaller objects
-with red lights emerged, operated independently, departed at high speed (section X).
+89 August 31 - Butler Township, Pennsylvania. - Luminous mushroom-shaped object hovered over field, two smaller objects with red lights emerged, operated independently, departed at high speed (section X).
 
 89 September 21 thru October 07 - Voronezh, Russia. UFO sighting concentration in vicinity. Four landings and three 
 different kinds of entities reported (sections VIII, XII); geodesic engineer saw maneuvering airship-like object 
 September 24 (section IV).
 
-89 November 29 - Eupen, Belgium. Police patrol car illuminated by brilliant light beam, hovering dark triangular
+89 November 29 - Eupen, Belgium. - Police patrol car illuminated by brilliant light beam, hovering dark triangular
 object, humming noise, alternately moved and hovered (section I).
 
-90 March 2 - Beavercreek, Illinois. Brilliant white pulsating oval paced truck, hovered over road, instant
+90 March 2 - Beavercreek, Illinois. - Brilliant white pulsating oval paced truck, hovered over road, instant
 relocation over truck; cast light beam down (sections IX, X).
 
-90 March 4 - Wood End, Provincetown, Massachusetts. Sphere with windows seen from boat near lighthouse. Several objects 
-took off at high speed with loud booms, stopped, hovered, and flashed bright white lights (section VI).
+90 March 4 - Wood End, Provincetown, Massachusetts. - Sphere with windows seen from boat near lighthouse. Several objects took off at high speed with loud booms, stopped, hovered, and flashed bright white lights (section VI).
 
-90 March 27 - Kokomo, Indiana. Blindingly bright oval object approached car, passed low overhead. Driver
+90 March 27 - Kokomo, Indiana. - Blindingly bright oval object approached car, passed low overhead. Driver
 fled, looked back, saw object hovering over a field (section XII).
 
-92 August 19 - Tucson, Arizona. Manta ray-shaped object with body lights approached car, falling leaf motions,
+92 August 19 - Tucson, Arizona. - Manta ray-shaped object with body lights approached car, falling leaf motions,
 hovered, light beam brightly illuminated terrain (section VI).
 
-94 July 24 - Melbourne, Victoria, Australia. Motorists encountered glowing orange oblong objects, one followed car;
+94 July 24 - Melbourne, Victoria, Australia. - Motorists encountered glowing orange oblong objects, one followed car;
 diamond-shaped object hovered overhead when they stopped to look. Missing time period discovered upon arrival home 
 (Basterfield, 1997b).
 
-94 December - Trumball County, Ohio. Multiple reports of low-flying object.
-
-
+94 December - Trumball County, Ohio. - Multiple reports of low-flying object.
