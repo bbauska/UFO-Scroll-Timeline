@@ -1,11 +1,11 @@
 # MORE-to-be-added.md
 
-| Date | City,State or Country | Description                                                            |
+| Date | City,State or Country | Description                                                             |
 |:------|:--------------------:|:-----------------------------------------------------------------------:|
-| 1880 | Aldershot, United Kingdom |
-A strange being dressed in tight-fitting clothes and shining helmet soared over
+| 1880 | Aldershot, United Kingdom | A strange being dressed in tight-fitting clothes and shining helmet soared over
 the heads of two sentries, who fired without result. The apparition stunned
 them with something described as "blue fire." |
+
 | 1896 | Arolla (near Zermatt), Swiss Alps |
 Aleister Crowley was walking in the mountains when he suddenly saw two
 little men. He made a gesture to them, but they did not seem to pay attention
