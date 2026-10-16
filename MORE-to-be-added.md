@@ -84,7 +84,7 @@
 | 67 August 31 Time not reported | Cussac, FRANCE. | Two small humanoids in black garb were seen. They entered a disc-shaped craft and took off. Cows were agitated (animal reactions) during the sighting. (APRO Bulletin, Sept.-Oct. 1967, p. 8) |
 | 67 September 15 8:50 p.m. | Winsted, Connecticut. | Separate witnesses in Winsted reported seeing a large glowing, pulsating object hovering nearby and several small beings with large heads (humanoids) moving around it. The object's light dimmed when cars approached. (Report in NICAP files; Gillmor, 1969, p. 347.) |
 | 67 September 17 | Belo Horizonte, Minas Gerais State, BRAZIL. | Time not given. Two witnesses reported that a saucer with portholes landed on a soccer field. (Beings seen in association with the object were over 6 feet tall, hefty, used breathing apparatus, and had bulging eyes. (Baltimore Morning Sun, Maryland, 9/25/67, copy in NICAP files.) |
-| | 67 September 21 12:30 a.m. | Barcelona, SPAIN. | Small beings (humanoids) with large heads and white garb were seen moving toward a brilliant round object on the ground. Their car was lifted (mass displacement) and witnesses were in shock. (Ballester Olmos, 1976, p. 12.) | 
+| 67 September 21 12:30 a.m. | Barcelona, SPAIN. | Small beings (humanoids) with large heads and white garb were seen moving toward a brilliant round object on the ground. Their car was lifted (mass displacement) and witnesses were in shock. (Ballester Olmos, 1976, p. 12.) | 
 | 67 November 09 11:45 p.m. | Erin (near), Tennessee. | Two nurses driving home from a Waverly, Tennessee hospital stopped for a traffic light in Erin, Tennessee. While stopped they saw a large UFO approach and land on the highway in front of them. The lights on their car went out. The next recollection was of the object high in the sky leaving them, but they perceived no time lapse nor did they ever check the time. (MUFON Sympap81, p. 23) |
 | 67 November 19 5:45 p.m. | Calgary, Alberta, CANADA. | While walking home, a 14-year-old boy saw a silver-grayish object with flashing , multi-colored lights (body lights) around the center. The object was making a high-pitched sound. He ran home, discovered that 45 minutes of time was missing, and an abduction was revealed under hypnosis. (Bondarchuk, 1979, pp. 83-88.) |
 | 67 November 24 - 2:30 p.m. | Rio de Janeiro, BRAZIL. | Three small white-clad figures (humanoids) were seen around a disc that had a dome and red body lights. Physical traces were found at the site. (APRO Bulletin, Nov.-Dec. 1967, p. 3.) |
@@ -93,8 +93,7 @@
 | 67 December 08 - 7:40 p.m. | Idaho Falls, Idaho. | A 15-year-old girl saw a very bright white illuminated circular object (disc) the size of a car hovering over her house. (Hall, 2001, p. 459, from: Keyhoe and Lore, 1969a, pp. 29-30.) |
 | 68 February 01 | Criacao do Cabrito, Azores. | Serafim Vieira Sebastiao, a watchman at the Azores Air Station, saw "an oval object with a metallic gleam, topped by a glass tower with a small balustrade on which two beings were standing." (Magonia #904; FSR 68, 5) |
 | 68 March | Berezovsky (near), RUSSIA. | Alleged crash/retrieval on the web, and earlier shown on the History Channel. Shows footage of the alleged crashed UFO near Berezovsky (Sverdlovsk region) in 1968 and related alleged KGB documents. |
-| 68 June 14 - After midnight. | Cabañas, Pinar Del Rio (near), CUBA. | Several bursts of machine gun fire were heard coming from a
-location in the vicinity where militia member Isidro Puentes Ventura was on guard duty. At dawn, Puentes was found unconscious by an Army patrol and taken to a hospital in Pinar Del Rio, where he remained in shock and unable to speak for six days. (Timothy Good, "Beyond Top Secret" quoting Jacques Vallee) |
+| 68 June 14 - After midnight. | Cabañas, Pinar Del Rio (near), CUBA. | Several bursts of machine gun fire were heard coming from a location in the vicinity where militia member Isidro Puentes Ventura was on guard duty. At dawn, Puentes was found unconscious by an Army patrol and taken to a hospital in Pinar Del Rio, where he remained in shock and unable to speak for six days. (Timothy Good, "Beyond Top Secret" quoting Jacques Vallee) |
 | 68 June 19 - Night | Cabreria, ARGENTINA. | A settler, Romulo Velasco, 25, saw a bright object land. From it emerged a strange "tall, slim being" who came toward the witness, who fainted. (Magonia #910, FSR 68, 5) |
 | 68 July 01 - 4:00 a.m. | Ricardone, ARGENTINA. | Raul Calcedo met two giants, almost 3 m tall, in Ricardone. He fled in terror, in spite of a strange power that tended to make him stay. (Magonia #913, FSR 68, 5) |
 | 68 July 02 - 8:15 a.m. | Cofico, ARGENTINA. |  A boy, Sola, saw, a few meters away, a strange being, about 2.10 m tall, hovering in the air, his body emitting a peculiar glow, near a bright, unknown object. (Magonia #915, FSR 68, 5) |
@@ -107,136 +106,22 @@ location in the vicinity where militia member Isidro Puentes Ventura was on guar
 | 68 September 01 | Mendoza, ARGENTINA. | Huge circular object hovering nearby, three small humanoids. Flying Saucer Review, November 1968; see Rodeghier,1981, p. 43 (E,L) car. |
 | 68 October 09 - 6:20 a.m. | Lins, BRAZIL. | Doribio Pereira, 41, municipal employee, suddenly observed a golden, cigar-shaped object, and a figure armed with a flashing weapon that immobilized him. Three beings were standing on a platform under the craft.
 (Magonia #920, FSR 69, 1) |
+| 68 November | Kent, Indiana. | Abduction report. First investigated by Bay Area (CA) Subcommittee, then turned over to Indiana NICAP Subcommittee. (Ridge files) |
+| 68 November 20 | Hanbury, UNITED KINGDOM. | Entities within domed craft. AR Case. |
+| 70 January 01 | Duncan, B.C., CANADA. | Hospital nurse saw craftlike object hovering near building, two humanoid figures visible in upper portion (UFOE II, Section XII). |
+| 70 January 07 | Imjarvi, FINLAND. | Two skiers saw disc-shaped object approach, hover, humanoid appeared in light beam from object. Memory loss, extensive physiological effects (Humcat 1970-4 ; UFOE II, Section XII). |
+| 71 January 22 - Pre-dawn. | Peabody, KANSAS. | Stewart and Lyle Leppke, doing their early morning farm chores, observed a lighted object in a cattle lot. When they flashed their light on it, they saw a diminutive figure, less than 2-feet tall, moving about near the object, which had small windows on it. (Humcat 1971-3; Source: Humcat, quoting newspaper source). |
+| 71 February 05 - 3:00 p.m. | Kangaskyla Kinnula, FINLAND. | Two young men, P. Aliranta and E J Sneck, were working in the woods when Aliranta noticed a 15 foot metallic object, shaped like two saucers put together, and with four thin legs, descending in a clearing 50 feet away. As it landed, a little entity just under 3-foot tall glided to the ground from an opening in the underside; dressed in green one-piece "diver's suit," it wore a helmet with a circular faceplate. (Humcat 1971-6, Tapani Kuningas, FSR Vol. 17 # 5) |
+| 71 April 14 | Gallery, Pennsylvania. | Close-range sighting of disc with windows, two humanoid figures visible inside, light beam upward from top (UFOE II, Section VI). |
+| 71 May 15 - 10:00 p.m. | Passapatanzy, West Virginia. | Michael D, 15, was on his way home after camping out with two other boys; while crossing a grassy field, alone, he saw a bright object slowly approaching at low altitude, passing over some high-tension wires that crossed the field. A door 'came down" out of which emerged a "huge" figure, who was hunched over, had long arms, and wore shiny, light reflecting clothing. (Humcat 1971-17; John Carlson, Bruce Maccabee for NICAP) |
+| 71 May 21 - 1:10 a.m. |  West Leisenring (near), Pennsylvania. | A man was returning home when as he was rounding a bend in a rural road he noticed an unusual object hovering about 20 feet above the ground. The craft was saucer shaped with a dome on top and an antenna like protrusion. After two minutes the witness saw a figure walk back and forth in the opening of the object. The figure was dressed in a gray white metallic suit with a hood and was about six-foot tall. (Stan Gordon, Mufon Journal # 189). |
+| 71 June  | Sharpsville, Indiana. | Humanoid report. No details except witness' name, which was King. (EGBA, 680) |
+| 71 July 27 - 8:30 p.m. | Valcourt, Quebec, CANADA. | The witness was at home watching television when he was distracted by the sounds of his cows bellowing on a nearby field. They also saw a dark spherical object hovering above the field, a reddish light shone out of what appeared to be an open door on the object. Three small men who glowed a pale green color were moving around the object. They seem to glide just above the ground in rapid darting movements. (HC addition # 1011, Source: Francois Bourbeau, Spectra, Quebec Canada, Type: B) |
+| 72 September 20 | Howard, Indiana. | Humanoid report. No details, but witness' name was Eastman.(EGBA, Page 673) |
+| 72 October 14 - 2:00 p.m. | McChord AFB, Washington. | Two airmen were instructed to check the tactical air navigational (TACAN) facility located eight miles east of McChord Air Force Base. Briggs exited the building to investigate the sound. Once outside, Briggs observed a saucer shaped object directly above the TACAN building. Briggs watched as the object landed just south of the TACAN compound. Briggs was startled by the object and entered the TACAN building to summoned Hillsgeck. Once Hillsgeck and Briggs exited the building together, they observed two "creatures" walking towards the fence. (See report by Bill Hamilton) |
 
-| 68 November 00
-Kent
-IN
-7
-Abduction report. First investigated by Bay Area (CA) Subcommittee, then
-turned over to Indiana NICAP Subcommittee. (Ridge files)
-
-| 68 November 20
-Hanbury
-UK
-7
-Entities within domed craft. AR Case
-
-| 70 January 01
-Duncan, B.C.
-CAN
-7
-Hospital nurse saw craftlike object hovering near building, two humanoid
-figures visible in upper portion (UFOE II, Section XII).
-
-| 70 January 07
-Imjarvi
-Finland
-7
-Two skiers saw disc-shaped object approach, hover, humanoid appeared in
-light beam from object. Memory loss, extensive physiological effects (Humcat
-1970-4 ; UFOE II, Section XII).
-
-| 71 January 22
-Peabody
-KS
-7
-Pre-dawn. Stewart and Lyle Leppke, doing their early morning farm chores,
-observed a lighted object in a cattle lot. When they flashed their light on it,
-they saw a diminutive figure, less than 2-feet tall, moving about near the
-object, which had small windows on it. (Humcat 1971-3; Source: Humcat,
-quoting newspaper source).
-
-| 71 February 05
-Kangaskyla Kinnula
-Finland
-7
-3:00 p.m. Two young men, P. Aliranta and E J Sneck, were working in the
-woods when Aliranta noticed a 15 foot metallic object, shaped like two
-saucers put together, and with four thin legs, descending in a clearing 50 feet
-away. As it landed, a little entity just under 3-foot tall glided to the ground
-from an opening in the underside; dressed in green one-piece "diver's suit," it
-wore a helmet with a circular faceplate. (Humcat 1971-6, Tapani Kuningas,
-FSR Vol. 17 # 5)
-
-| 71 April 14
-Gallery
-PA
-7
-Close-range sighting of disc with windows, two humanoid figures visible
-inside, light beam upward from top (UFOE II, Section VI).
-
-| 71 May 15
-Passapatanzy
-WV
-7
-10:00 p.m. Michael D, 15, was on his way home after camping out with two
-other boys; while crossing a grassy field, alone, he saw a bright object slowly
-approaching at low altitude, passing over some high-tension wires that crossed
-the field. A door 'came down" out of which emerged a "huge" figure, who was
-hunched over, had long arms, and wore shiny, light reflecting clothing.
-(Humcat 1971-17; John Carlson, Bruce Maccabee for NICAP)
-
-| 71 May 21
-West Leisenring (near)
-PA
-7
-1:10 a.m. A man was returning home when as he was rounding a bend in a
-rural road he noticed an unusual object hovering about 20 feet above the
-ground. The craft was saucer shaped with a dome on top and an antenna like
-protrusion. After two minutes the witness saw a figure walk back and forth in
-the opening of the object. The figure was dressed in a gray white metallic suit
-with a hood and was about six-foot tall. (Stan Gordon, Mufon Journal # 189).
-
-| 71 June 00
-Sharpsville
-IN
-7
-Humanoid report. No details except witness' name, which was King. (EGBA,
-680)
-
-| 71 July 27
-Valcourt, Quebec
-CAN
-7
-8:30 p.m. The witness was at home watching television when he was
-distracted by the sounds of his cows bellowing on a nearby field. They also
-saw a dark spherical object hovering above the field, a reddish light shone out
-of what appeared to be an open door on the object. Three small men who
-glowed a pale green color were moving around the object. They seem to glide
-just above the ground in rapid darting movements. (HC addition # 1011,
-Source: Francois Bourbeau, Spectra, Quebec Canada, Type: B)
-
-| 72 September 20
-Howard
-IN
-7
-Humanoid report. No details, but witness' name was Eastman.(EGBA, Page
-673)
-
-| 72 October 14
-McChord AFB
-WA
-7
-2:00 p.m. Two airmen were instructed to check the tactical air navigational
-(TACAN) facility located eight miles east of McChord Air Force Base. Briggs
-exited the building to investigate the sound. Once outside, Briggs observed a
-saucer shaped object directly above the TACAN building. Briggs watched as
-the object landed just south of the TACAN compound. Briggs was startled by
-the object and entered the TACAN building to summoned Hillsgeck. Once
-Hillsgeck and Briggs exited the building together, they observed two
-"creatures" walking towards the fence. (See report by Bill Hamilton)
-
-| 72 November 26
-Bt. Bedoga Bay and Woodland
-CA
-7
-Judy Kendall abduction, three types of beings (UFOE II, Section XIII).
-
-| 73 February 14
-McAlester
-OK
-7
-Disc Cavorts Near Airliner / Confirmed By Radar
+| 72 November 26 | Bt. Bedoga Bay and Woodland, California. | Judy Kendall abduction, three types of beings (UFOE II, Section XIII). |
+| 73 February 14 | McAlester, Oklahoma. | Disc Cavorts Near Airliner / Confirmed By Radar. |
 
 | 73 May 00
 Catanduva, Sao Paulo (near)
@@ -246,7 +131,7 @@ A man and his wife employed at the Fazenda Secap claimed to have seen an
 oval shaped flying craft, "with two figures like people, in big hats and linked
 together by a sort of tube."
 
-| 73 July 00
+| 73 July 00 | 
 Kokkaido
 Japan
 7
@@ -254,7 +139,7 @@ Witness said light descended to an altitude of about 20 meters (75 feet) above
 the surface of the water and stopped, and then from the underside of the light
 came what appeared to be a glass-like transparent tube
 
-| 73 August 09
+| 73 August 09 | 
 Exeter
 NH
 7
@@ -262,14 +147,14 @@ A father and his son were driving along a main highway in the Exeter area
 when they saw a landed UFO alongside the highway. A humanoid was
 standing beside it.
 
-| 73 August 10
+| 73 August 10 | 
 Ibague
 Columbia
 7
 Four grade-school students and a policeman saw four small humanoids
 beneath a bridge.
 
-| 73 August 27
+| 73 August 27 | 
 Greensburg
 PA
 7
@@ -278,27 +163,27 @@ hovering over a heavily wooded area in Beech Hill. When her husband went
 out to investigate he encountered a large hairy, biped creature with a wolf-like
 face.
 
-| 73 September 09
+| 73 September 09 | 
 Savannah
 GA
 7
 "Ten big, black hairy dogs" emerged from a landed UFO in Laurel Grove
 Cemetery and ran through the cemetery.
 
-| 73 September 27
+| 73 September 27 | 
 Bedarrides
 France
 7
 Humanoid occupant case. No details. (UFOE II, Section XII).
 
-| 73 October 00
+| 73 October 00 | 
 Uden
 Netherlands
 7
 A woman arising from bed glanced out a window and clearly saw three "little
 men" outside of her house.
 
-| 73 October 00
+| 73 October 00 | 
 Anthony Hill
 TN
 7
@@ -306,14 +191,14 @@ Three teenagers saw a huge-hairy robot-like creature that walked mechanically
 with its hands upraised. It had a large round head. An egg-shaped UFO was
 also seen at the same time.
 
-| 73 October 05
+| 73 October 05 | 
 Saint-Mathias-de-Chambly
 CAN
 7
 Five small humanoids in orange garb observed in vicinity of orange domelike
 object.
 
-| 73 October 10
+| 73 October 10 | 
 Magnolia
 MS
 7
@@ -321,7 +206,7 @@ Round, shiny, metallic object on or near ground, something rectangular about
 the size of a small person emerged; later reentered, and object took off.
 (UFOE II, page 341)
 
-| 73 October 11
+| 73 October 11 | 
 Pascagoula
 MS
 7
@@ -329,7 +214,7 @@ E
 5
 Hickson/Parker Incident
 
-| 73 October 11
+| 73 October 11 | 
 Tanner Williams
 AL
 7
@@ -337,14 +222,14 @@ A three-year old boy reported to his mother that he had been playing with
 "some old monster" in the backyard. He said it was gray with wrinkled skin
 and pointed ears.
 
-| 73 October 12
+| 73 October 12 | 
 Cincinnati
 OH
 7
 Humanoid being observed in object like transparent "bell jar" (UFOE II,
 Section XII)
 
-| 73 October 15
+| 73 October 15 | 
 Omro
 WI
 7
@@ -352,13 +237,13 @@ The witness was awakened sometime after midnight by a brief, high-pitched
 sound; the room was lit up with a bright, orange-red glow, and he saw three
 humanoids 4-5 feet tall materialize.
 
-| 73 October 16
+| 73 October 16 | 
 Burbank
 CA
 7
 Landed UFO with humanoid figures inside (UFOE II, Section VIII, XII)
 
-| 73 October 16-17
+| 73 October 16-17 | 
 Lehi
 UT
 7
@@ -366,21 +251,21 @@ A woman was abducted front her home, as well as possibly three of her
 children and a neighbor boy, and given a medical examination on board a
 craft.
 
-| 73 October 17
+| 73 October 17 | 
 Falkville
 AL
 7
 Alleged humanoid photo. Police Chief Jeff Greenhaw photographed a 5' foot
 being in a silvery suit after investigating a reported UFO landing.
 
-| 73 October 17
+| 73 October 17 | 
 Watauga
 TN
 7
 Evening. A circular, copper-colored UFO hovered just off the ground while a
 6 ft being reached out of a doorway and tried to grab two children.
 
-| 73 October 18
+| 73 October 18 | 
 Chatham (Near)
 VA
 7
@@ -388,27 +273,27 @@ Two youths were chased by a white "thing" 3-4 feet tall on White Oak
 Mountain. The thing had a shimmering body, large head with no eyes and ran
 sideways.
 
-| 73 October 18
+| 73 October 18 | 
 Savannah (near)
 GA
 7
 A tiny silver being was seen standing beside U.S. Rt. 17.
 
-| 73 October 19
+| 73 October 19 | 
 Ashburn
 GA
 7
 Woman had power failure in car, encountered a small humanoid with metallic-
 appearing garb and bubble helmet
 
-| 73 October 19
+| 73 October 19 | 
 Copeland
 NC
 7
 Bluish oval object hovered near mobile home, three-foot-tall humanoid in
 golden metallic suit seen nearby
 
-| 73 October 19
+| 73 October 19 | 
 Albany
 OH
 7
@@ -417,54 +302,54 @@ about 50 ft above the ground at 1000 ft distance; it was about 4 ft tall and
 thin, "like a person draped in a close-fitting sheet." It was seen only briefly
 when she noticed a bright white object moving
 
-| 73 October 21
+| 73 October 21 | 
 Covedale
 OH
 7
 A mother and her son observed a gray humanoid near a UFO.
 
-| 73 October 22
+| 73 October 22 | 
 Hartford City
 IN
 7
 9:45 p.m. Couple in car with baby approach small bright silver figures
 bouncing on highway 9 miles east of Hartford City.
 
-| 73 October 23
+| 73 October 23 | 
 Hartford City
 IN
 7
 12:15 a.m. A wrecker truck driver, gas station owner, encountered these same
 figures about one mile south of the first sighting.
 
-| 73 October 23
+| 73 October 23 | 
 Russell Springs
 KY
 7
 A woman saw two 3-ft tall beings in her carport who walked around the side
 of the house, entered a craft "shaped like a washing tub" sitting on the ground
 
-| 73 October 28
+| 73 October 28 | 
 Villa Bordeu, Bahia Blanca
 Arg
 7
 Dionisio Llanca humanoid encounter, abduction. (UFOE II, Section XIII).
 
-| 73 November 02
+| 73 November 02 | 
 Goffstown
 NH
 7
 UFO with bright yellow light paced car, moved in front of it; motorist felt
 dizzy and numb.
 
-| 73 November 04
+| 73 November 04 | 
 Goffstown
 NH
 7
 There was another very interesting report involving two glowing creatures
 collecting items from the ground in the front yard of Rex Snow.
 
-| 73 November 07
+| 73 November 07 | 
 Winnfield
 LA
 7
@@ -472,7 +357,7 @@ Woman driving from Winnfield to Sikes on this foggy night encountered
 along the roadway a three-foot-tall humanoid being with a large oval head and
 two bright red eyes (UFOE II, Section XII).
 
-| 73 November 00
+| 73 November 00 | 
 Quebec
 CAN
 7
@@ -514,7 +399,7 @@ skeletal in nature with a covering skin. Other units supposedly transported live
 aliens from the "crash" site. (HC addition # 3925; CSETI, Nicholas Redfern,
 "Cosmic Crashes", Type: H)
 
-| 74 February 14
+| 74 February 14 | 
 Petite-Ile (Reunion)
 France
 7
@@ -526,7 +411,7 @@ was directed at him from the apparent craft. Three small beings, about 1.0 to
 the terrain. (Ouranos No. 14, 2nd Quarter 1975. Investigated by M.J. Bertil.
 Translated from the French by Jacques Deschenes.)
 
-| 74 February 28
+| 74 February 28 | 
 Hirson (Aisne)
 France
 7
@@ -536,7 +421,7 @@ of having stopped the motorcycle. It was still dark at this hour. In an adjacent
 field he saw a dark circular object. Physical traces were found at the landing
 site.
 
-| 74 April 16
+| 74 April 16 | 
 Casale Monferrato
 Italy
 7
@@ -545,7 +430,7 @@ around circumference of ring. Object rotated. No sound. Three humanoid
 beings. Object hovered, occupants visible in lighted transparent cockpit stared
 at witness. (Carla and Mauro Bellingeri, Ref. 5, Reference 1, Section XII).
 
-| 74 May 07
+| 74 May 07 | 
 Coatsville
 PA
 7
@@ -554,14 +439,14 @@ humanoids. &lt;5 ft. tall. Large elongated heads. Short legs. No helmets.
 Occupants beside landed object seemed to examine disc's legs, re-entered
 object and disappeared. (Witness: Margaret K. Roffe; Ref.5)
 
-| 74 May 09
+| 74 May 09 | 
 Daylight
 IN
 7
 (Date may not be correct) Evening. Local man (and six others) cllaim he was
 abducted. Jordan. (Investigated by Mike Cristol)
 
-| 74 May 20
+| 74 May 20 | 
 Hampton Beach
 NH
 7
@@ -569,7 +454,7 @@ NH
 rim. Four landing legs. Hatch folded down, ramp came out. Humming sound.
 One humanoid-like being 6' tall. Light colored coveralls. (Ref.5, Molon)
 
-| 74 May 22
+| 74 May 22 | 
 Fairfield
 OH
 7
@@ -577,7 +462,7 @@ OH
 around lower part rotating 3 to 4 square windows emanating white light.
 Brightly lit transparent area on top. Two small, dark humanoids. (Ref.5)
 
-| 74 May 31
+| 74 May 31 | 
 Salisbury
 South Africa
 7
@@ -587,7 +472,7 @@ translocation from one place to another, altered appearance of the terrain,
 humanoid encounter, and amnesia. (Skylook No. 88, March 1975, Mutual
 UFO Network.)
 
-| 74 June 18
+| 74 June 18 | 
 Metcalf
 IL
 7
@@ -596,25 +481,25 @@ apparently abducted and no one knew it for some 12 years or spring of 1986.
 Natural recall of abduction into craft and removal of sperm. Elderly farmer
 saw object land in soybean field around 12:00 a.m. (Don Worley files)
 
-| 74 October 25
+| 74 October 25 | 
 Rawlins
 WY
 7
 Carl Higdon abduction (Reference 1, Section XIII).
 
-| 74 October 27
+| 74 October 27 | 
 Aveley
 UK
 7
 Abduction case (Reference 1, Section XIII).
 
-| 74 October 29
+| 74 October 29 | 
 Melrose Park
 IL
 7
 CE-1. No details (CUFOS)
 
-| 75 January 12
+| 75 January 12 | 
 North Bergen (in Hudson Park)
 NJ
 7
@@ -624,7 +509,7 @@ into a domed disc-shaped craft. (Sources: Ted Bloecher, Proceedings of the
 CUFOS Conference: 1976, p. 33; Mark Rodeghier, UFO Reports Involving
 Vehicle Interference, p. 64).
 
-| 75 February 14
+| 75 February 14 | 
 Petite-He, Reunion
 France
 7
@@ -632,7 +517,7 @@ Three humanoid beings in protective gear emerged from domed disc, witness
 injured, paralyzed, by flash of light (NICAP UFO Evidence II, Sections IX,
 XII).
 
-| 75 February 23
+| 75 February 23 | 
 Kofu
 Japan
 7
@@ -644,7 +529,7 @@ July 14, 1975; APRO Bulletin, November-December 1976, p. 5; David F.
 Webb & Ted Bloecher, HUMCAT: Catalogue of Humanoid Reports, case
 1975- October  (A1391), citing Hayashi Ichinan andYoshihiko Honda).
 
-| 75 April 06
+| 75 April 06 | 
 Wausau
 WS
 7
@@ -654,7 +539,7 @@ when their CB radio stopped working. Mike saw a UFO about 1500 feet north
 of the road. (Source: David F. Webb & Ted Bloecher, HUMCAT: Catalogue
 of Humanoid Reports, case 1975-19, citing Richard Heiden for CUFOS).
 
-| 75 May 05
+| 75 May 05 | 
 Pleasanton
 TX
 7
@@ -668,7 +553,7 @@ MT
 7
 6:45 p.m. Small men with huge UFO. (NIDS UFO 87)
 
-| 75 August 13
+| 75 August 13 | 
 Alamogordo
 NM
 7
@@ -679,7 +564,7 @@ by two Grey aliens about 4 feet 8 inches tall. (Sources: Coral E. Lorenzen &
 Jim Lorenzen, Abducted! Confrontations with Beings from Outer Space, p. 38;
 David F. Webb, Proceedings of the CUFOS Conference: 1976, p. 267).
 
-| 75 August 26
+| 75 August 26 | 
 Buffalo
 ND
 7
@@ -693,7 +578,7 @@ appearing arms. Its body was like "brown vinyl." (Source: David F. Webb &
 Ted Bloecher, HUMCAT: Catalogue of Humanoid Reports, case 1975-28,
 citing Jerome Clark and Dr. R. Leo Sprinkle).
 
-| 75 September 03
+| 75 September 03 | 
 Manassas
 VA
 7
@@ -705,7 +590,7 @@ face that occupied about half the height of his body." His skin was gray &
 leathery, and he walked "in a bouncing, hopping motion." (Humcat 1975-31
 Source: Richard Hall Type: C)
 
-| 75 October 27
+| 75 October 27 | 
 Oxford
 ME
 7
@@ -739,13 +624,13 @@ Bourret, OVNI l' Armee Parle, p. 146; David F. Webb and Ted Bloecher,
 HUMCAT: Catalogue of Human Reports, case 1976-02, citing Michel Levy,
 Lumieres dans la Nuit, issue # 159).
 
-| 76 February 00
+| 76 February 00 | 
 Woodlawn
 OH
 7
 Humanoid report. No details. (SR,89)
 
-| 76 February 05
+| 76 February 05 | 
 Unknown City
 France
 7
@@ -755,7 +640,7 @@ human like figures. They had tight fitting hoods on their heads. The UFO flew
 away over an orchard. (Source: David F. Webb & Ted Bloecher, HUMCAT:
 Catalogue of Humanoid Reports, case A1861, citing Joel Mesnard).
 
-| 76 February 10
+| 76 February 10 | 
 Hamden
 CT
 7
@@ -765,7 +650,7 @@ colored luminous one-piece suits and their waists were 20-22 inches above the
 ground. (Source: James P. Barrett, case investigation files, and HUMCAT:
 Catalogue of Humanoid Encounters, case A1457).
 
-| 76 February 22
+| 76 February 22 | 
 Great Falls (near)
 MT
 7
@@ -776,7 +661,7 @@ human gait. (Sources: David F. Webb & Ted Bloecher, HUMCAT: Catalogue
 of Humanoid Reports, case 1976-41 (A1463), citing Jerome Clark; Great Falls
 Tribune, February 23, 1976).
 
-| 76 February 25
+| 76 February 25 | 
 Maneru
 Spain
 7
@@ -785,7 +670,7 @@ The UFO was 8-10 meters wide, and had a transparent dome. A two-meter tall
 being emerged dressed in a black coverall suit. (Source: Gordon Creighton,
 FSR, April 1977, p. 27).
 
-| 76 February 25
+| 76 February 25 | 
 Nashville
 IL
 7
@@ -794,7 +679,7 @@ on a country road NW of Nashville. The being flashed a blue light at her
 before she sped away. Beings described as very tall "with large feet and no
 necks." (MUFON 100-7, CUFOS-AP)
 
-| 76 March 03
+| 76 March 03 | 
 Refrigerio
 Brazil
 7
@@ -805,63 +690,13 @@ outside making repairs. (Source: David F. Webb & Ted Bloecher, HUMCAT:
 Catalogue of Humanoid Reports, case A1465, citing Gray Barker, UFO
 Report, June 1977, p. 37).
 
-| 76 April 02
-Chalus
-Iran
-7
-Mr. Bazargani from Chalus, Iran was walking through a forest near his home
-on this day in 1976 when he had a UFO stop directly overhead. He realized he
-was paralyzed and could not move when he saw four beings emerge from the
-craft via a ladder. (Source: David F. Webb and Ted Bloecher, HUMCAT:
-Catalogue of Humanoid Reports, case A1466).
-
-| 76 April 23 - Flintville, Tennessee.
-Humanoid report, witnessed by Robertson. (EGBA,493).
-
-76 April 23 - 11:15 p.m. - Matapozuelos, Spain.
-While half the town was watching a reddish oval shaped craft
-maneuvering overhead, 14-year-old Fidel Hernandez Rolla was playing with
-some friends in a field outside of town, when they saw the reddish spheres
-slowly descend and land on a nearby field. The craft was topped by a crystal
-dome and inside the dome several very tall, human-like figures could be seen
-moving about. He then saw three tall man-like figures appear from behind the
-object, not very far from his location. (Source: Albert S. Rosales, Humanoid
-Contact Database 1976, citing Iker Jimenez, Enigmas Sin Resolver).
-
-76 May 11 - 6:15 a.m. - Manchester, United Kingdom.
-A silver suited figure stood next to silver sphere on the ground in
-Leigh, Greater Manchester, England. It was sighted by a Mrs. Kent at 6:15
-a.m. as she passed by. Both were gone 20 minutes later when she passed by
-the site again. (Source: J. Bernard Delair, Northern Network News, June 1976,
-vol. 25, p. 8; Jenny Randles, FSR, October 1976, p. 27).
-
-76 May 14 - Olavarria, Argentina.
-Mr. Urruti, age 47, was driving his truck when he encountered an unusual fog
-while crossing over a bridge. An oyster shaped UFO emitted a blinding light
-beam, and both he and his truck were somehow picked up and abducted.
-(Sources: FSR, October 1976, p. 31, citing La Razon, May 22, 1976; Geoffrey
-Falla, BUFORA Vehicle Interference Project Report, p. 77; Thomas E.
-Bullard, UFO Abductions: The Measure of a Mystery, case 92, citing FSR;
-David F. Webb & Ted Bloecher, HUMCAT: Catalogue of Humanoid Reports,
-case A1472, citing La Razon).
-
-76 May 18
-Sant'Onofrio, Abruzzi
-Italy
-7
-10:30 p.m. A man and his family observed a large, house-sized object
-hovering close to a nearby hill. The object approached the witnesses' home
-and from its top section a strong yellow light was directed over the area. The
-UFO had a large round opening from which a red light shone. From inside the
-porthole a dark, shadowy, man-like figure could be seen looking out at the
-witnesses for a brief period. (Source: Maurizio Verga, ITACAT Italian
-catalogue, case 85)
-
-76 May 20
-Jamestown
-TN
-7
-C1, one witness, no details. (EGBA,494)
+| 76 April 02 | Chalus, IRAN. | Mr. Bazargani from Chalus, Iran was walking through a forest near his home on this day in 1976 when he had a UFO stop directly overhead. He realized he was paralyzed and could not move when he saw four beings emerge from the craft via a ladder. (Source: David F. Webb and Ted Bloecher, HUMCAT: Catalogue of Humanoid Reports, case A1466). |
+| 76 April 23 -  | Flintville, Tennessee. | Humanoid report, witnessed by Robertson. (EGBA,493). |
+| 76 April 23 - 11:15 p.m. | Matapozuelos, SPAIN. | While half the town was watching a reddish oval shaped craft maneuvering overhead, 14-year-old Fidel Hernandez Rolla was playing with some friends in a field outside of town, when they saw the reddish spheres slowly descend and land on a nearby field. The craft was topped by a crystal dome and inside the dome several very tall, human-like figures could be seen moving about. He then saw three tall man-like figures appear from behind the object, not very far from his location. (Source: Albert S. Rosales, Humanoid Contact Database 1976, citing Iker Jimenez, Enigmas Sin Resolver). |
+| 76 May 11 - 6:15 a.m. | Manchester, United Kingdom. | A silver suited figure stood next to silver sphere on the ground in Leigh, Greater Manchester, England. It was sighted by a Mrs. Kent at 6:15 a.m. as she passed by. Both were gone 20 minutes later when she passed by the site again. (Source: J. Bernard Delair, Northern Network News, June 1976, vol. 25, p. 8; Jenny Randles, FSR, October 1976, p. 27). |
+76 May 14 | Olavarria, ARGENTINA. | Mr. Urruti, age 47, was driving his truck when he encountered an unusual fog while crossing over a bridge. An oyster shaped UFO emitted a blinding light beam, and both he and his truck were somehow picked up and abducted. (Sources: FSR, October 1976, p. 31, citing La Razon, May 22, 1976; Geoffrey Falla, BUFORA Vehicle Interference Project Report, p. 77; Thomas E. Bullard, UFO Abductions: The Measure of a Mystery, case 92, citing FSR; David F. Webb & Ted Bloecher, HUMCAT: Catalogue of Humanoid Reports, case A1472, citing La Razon). |
+| 76 May 18 - 10:30 p.m. | Sant'Onofrio, Abruzzi, ITALY. | A man and his family observed a large, house-sized object hovering close to a nearby hill. The object approached the witnesses' home and from its top section a strong yellow light was directed over the area. The UFO had a large round opening from which a red light shone. From inside the porthole a dark, shadowy, man-like figure could be seen looking out at the witnesses for a brief period. (Source: Maurizio Verga, ITACAT Italian catalogue, case 85) |
+| 76 May 20 | Jamestown, Tennessee. | C1, one witness, no details. (EGBA,494) |
 
 76 May 21
 Alamogordo
@@ -876,7 +711,7 @@ taken. (Sources: Thomas E. Bullard, UFO Abductions: The Measure of a
 Mystery, case 093, citing the San Antonio (Texas) Light, March 20, 1983;
 John F. Schuessler, Physiological Effects from UFOs, p. 70).
 
-76 June 22
+| 76 June 22
 Galdar, Canary Islands
 W. Africa
 7
@@ -887,7 +722,7 @@ heads. Object moved in, hovered, made 90-degree turns. Diameter varied
 greatly. Occupants visible inside object operating instrument panel. Object
 departed out to sea. (Bruno Molon CEIII study)
 
-76 July 05
+| 76 July 05
 Gitchie Manitou Park
 IA
 7
@@ -897,14 +732,14 @@ then a whistle." When they looked in the direction of the noises they saw a
 seven-foot tall man standing behind a bush. (Source: Pat Miller, Sioux Falls
 (SD) Argus-Leader, August 15, 1976).
 
-76 October 00
+| 76 October 00
 Rigdon
 IN
 7
 Abduction report. Two witnesses. Disc observed. Confidential report.
 (MUFON Indiana, Ridge files)
 
-77 January 04
+| 77 January 04
 Carapito Beira Alta
 Portugal
 7
@@ -914,7 +749,7 @@ hovering 10 meters from the ground a dark metallic domed object that was
 emitting a beeping sound. Near the object was a very tall, heavy set figure,
 human like.
 
-77 January 27
+| 77 January 27
 Prospect
 KY
 7
@@ -924,7 +759,7 @@ the object and examined by three strange creatures who were shaped like
 machines. (Source: Mark Rodeghier, UFO Reports Involving Vehicle
 Interference, case 406, citing CUFOS; IUR,2,4)
 
-77 January 27
+| 77 January 27
 Clarksville
 TN
 7
@@ -937,7 +772,7 @@ Germany
 7
 Humanoid encounter (NICAP UFOE II, Section XII).
 
-77 March 05
+| 77 March 05
 McNatt
 MO
 7
@@ -951,7 +786,7 @@ coveralls with square glasses and a tight green cap over his ears. He was
 Catalogue of Humanoid Reports, case 1977-11, citing Monte Blue Skelton &
 Bob Pratt).
 
-77 March 07
+| 77 March 07
 Winchester, Hampshire
 UK
 7
@@ -962,7 +797,7 @@ luminous and making a humming sound. (Source: David F. Webb and Ted
 Bloecher, HUMCAT: Catalogue of Humanoid Encounters, case 1977-12,
 citing Lionel Beer, BUFORA).
 
-77 March 13
+| 77 March 13
 Pen-Y-Cwm, Pembrokeshire
 Wales
 7
@@ -973,7 +808,7 @@ heard footsteps, and looking around only a few yards away was a figure "like
 a skinny human six-foot tall." HUMCAT: Catalogue of Humanoid Reports,
 case 1977 -13, citing Randall Jones Pugh, BUFORA).
 
-77 March 20
+| 77 March 20
 Pebble Beach
 CA
 7
@@ -983,7 +818,7 @@ straight towards them. The woman had a brief recollection of seeing several
 tall humanoids without mouths, who communicated with her telepathically
 and showed her a book.
 
-77 April 04
+| 77 April 04
 Tucson
 AZ
 7
@@ -993,7 +828,7 @@ noise and looked up to see a luminous white UFO coming down for a landing.
 Then a human like figure, well over six-foot tall with very broad shoulders,
 walked toward her from the UFO.
 
-77 April 04
+| 77 April 04
 Gorham
 NH
 7
@@ -1006,7 +841,7 @@ tall occupants who had long slit-like eyes, ape like noses, and no hair. (Source
 David F. Webb & Ted Bloecher, HUMCAT: Catalogue of Humanoid Reports,
 case 1977-15, citing investigator Mrs. Lorraine Duchesne, MUFON).
 
-77 April 06
+| 77 April 06
 Ste. Dorothee, Quebec
 CAN
 7
@@ -1020,7 +855,7 @@ rear. He appeared in front of the object. (Sources: Marc Leduc, UFO Quebec,
 April 1977, issue # 10; HUMCAT: Catalogue of Humanoid Reports, case
 1977-74, citing Marc Leduc).
 
-77 April 07
+| 77 April 07
 Milford Haven, Pembrokeshire
 Wales
 7
@@ -1033,7 +868,7 @@ second was a seven to eight foot tall humanoid figure, who floated in the air
 with arms out and legs bent back, like a "free fall parachutist." (Source: David
 F. Webb and Ted Bloecher, HUMCAT: Catalogue of Humanoid Reports, case
 
-1977-17 [A1719], citing Randall Jones Pugh, British UFO Research
+| 1977-17 [A1719], citing Randall Jones Pugh, British UFO Research
 Association).
 77 April 12
 Rising Sun
@@ -1041,7 +876,7 @@ IN
 7
 Humanoid report. No details. (EGBA,680)
 
-77 April 12
+| 77 April 12
 Tucson
 AZ
 7
@@ -1053,7 +888,7 @@ was wearing a blue top and dark pants, but it also wore strange looking boots.
 (Source: Albert S. Rosales, Humanoid Contact Database 1977, case # 1810,
 citing Virgilio Sanchez Ocejo, Destino, Vol. 27 # 3, quoting APRO).
 
-77 April 19
+| 77 April 19
 Little Haven, Pembrokeshire
 Wales
 7
@@ -1066,7 +901,7 @@ David F. Webb and Ted Bloecher, HUMCAT: Catalogue of Humanoid
 Reports, case 1977-18; Randall Jones Pugh, FSR, August 1977, p. 6 for
 BUFORA).
 
-77 April 20
+| 77 April 20
 Herbrandston, Pembrokeshire, Wales
 UK
 7
@@ -1076,7 +911,7 @@ appeared and drifted through a closed gate at the other end of the field. It was
 dressed in a silver suit, like a diver, with a large helmet and a square,
 featureless face.
 
-77 April 25
+| 77 April 25
 Pampa Lluscuma
 Chile
 7
@@ -1089,7 +924,7 @@ had a strange look on his face and he emitted a sinister laugh, asking several
 times where his mother was. (Source: Albert S. Rosales, Humanoid Contact
 Database 1977, case # 3062, citing Diego Contreras & Raul Nunez).
 
-77 May 05
+| 77 May 05
 Ragusa (near)
 Italy
 7
@@ -1102,20 +937,20 @@ controlling and directing the yellow beam of light. (Sources: Maurizio Verga,
 ITACAT: Italian UFO catalogue, case 93; Albert S. Rosales, Humanoid
 Contact Database 1977, case # 1522, citing ITACAT).
 
-77 May 18
+| 77 May 18
 Pacific
 MD
 7
 Humanoid report. No details. (EGBA, 576)
 
-77 June 12
+| 77 June 12
 Crystal Lake
 IL
 7
 Time not given nor any details except this was reported as a CE-III.
 (SYMPAP, 1978,14)
 
-77 July 04
+| 77 July 04
 Toppenish
 WA
 7
@@ -1124,7 +959,7 @@ WA
 Description: I saw people in a disk shaped object approximately 20- 22 feet
 around hovering over me for around 5 minutes with 6-7 people on board.
 
-77 July 10
+| 77 July 10
 Pinheiro
 Brazil
 7
@@ -1136,7 +971,7 @@ staring at him. They examined him in silence. (Source: Bob Pratt, UFO
 Danger Zone: Terror and Death in Brazil--Where Next? and in Timothy Good
 (ed.), The UFO Report 1991).
 
-77 July 16
+| 77 July 16
 Wakefield
 MA
 7
@@ -1144,7 +979,7 @@ Multiple UFO abductee Betty Andreasson had her sixth close encounter
 experience on this night in Wakefield, Massachusetts. (Source: Raymond E.
 Fowler, Casebook of a UFO Investigator, p. 137).
 
-77 July 17
+| 77 July 17
 Barra do Corda (near)
 Brazil
 7
@@ -1153,7 +988,7 @@ Barra do Corda, Brazil. The ranch owner saw a short, hairy humanoid get out
 of the object, carrying "tools." (Source: Larry Hatch, U computer database,
 case 12248).
 
-77 July 24
+| 77 July 24
 Cruis (east of)
 France
 7
@@ -1163,13 +998,13 @@ ground by the side of the road. Next to the craft stood two human-like figures.
 The figures were about 1.65 meters in height and wore gray uniforms and
 helmets. (Source: Lumieres dans la Nuit, November 1980, issue # 195).
 
-77 August 00
+| 77 August 00
 Berlin Heights
 OH
 7
 CE-2. No details other than 1-witness last name Elmer. (EGBA,688)
 
-77 August 03
+| 77 August 03
 Campos
 Brazil
 7
@@ -1178,7 +1013,7 @@ thin, baldheaded figures were seen moving around the object performing
 various tasks. They wore gray coveralls with green belts. (Source: Albert S.
 Rosales, Humanoid Contact Database 1977, citing Antonio Faleiro).
 
-77 August 06
+| 77 August 06
 Pelham
 GA
 7
@@ -1193,7 +1028,7 @@ Encounters, edited by Ronald D. Story. New American Library, a division of
 Penguin Putnam Inc., 375 Hudson Street, New York, N.Y. 10014. 2001.
 Feature submitted by researcher Billy J. Rachels. (mysterious-america.net)
 
-77 August 10
+| 77 August 10
 Pinheiro, Maranhao State
 Brazil
 7
@@ -1201,18 +1036,19 @@ Early morning hours. A man named Bogea was chased by a delta-shaped
 flying object through the forest. He reported being abducted and shown a
 strange city for hours.
 
-77 August 10
+| 77 August 10
 Madison County
 IN
 7
 Humanoid report. No details. (EGBA,676)
 
-77 August 27
+| 77 August 27
 Aurora
 MO
 7
 Humanoid report. No details. (EGBA, 560)
-77 August 31
+
+| 77 August 31
 Mediania Alta Loiza
 PR
 7
@@ -1224,13 +1060,13 @@ that night a woman had gone out in his yard to empty some cooking waste
 when she saw four little men wearing silvery outfits standing by a water
 faucet.
 
-77 September 27
+| 77 September 27
 Bellbrook
 OH
 7
 CE-3. (EGBA,687)
 
-77 October 30
+| 77 October 30
 Sonora (near)
 CA
 7
@@ -1239,13 +1075,13 @@ blue smoke engulfed their car. The car stopped and its lights went out. She lost
 consciousness and then woke up with several humanoids carrying her to a
 landed oval-shaped craft standing on legs.
 
-77 November 16
+| 77 November 16
 Ellsworth AFB
 SD
 7
 Ellsworth AFB Hoax
 
-77 December 18
+| 77 December 18
 Guadalajara
 Spain
 7
@@ -1254,7 +1090,7 @@ road at a few minutes past midnight when the vehicles lights and radio
 suddenly died. A man dressed in a divers suit approached and told him
 through telepathy to come aboard a hat-shaped UFO.
 
-78 January 06
+| 78 January 06
 Santo Antonio de Caparica,
 Estremadura
 Portugal
@@ -1266,19 +1102,19 @@ men ran into the woods, which were now illuminated by a bluish glow. Upon
 entering a clearing, they saw a 2.1 meter tall human-like figure, standing eight
 meters away from them.
 
-78 January 09-10
+| 78 January 09-10
 South Middleton
 MA
 7
 Humanoid case (section XII)
 
-78 January 18
+| 78 January 18
 Fort Dix/McGuire AFB
 NJ
 7
 Alien being shot dead by MPs
 
-78 January 27
+| 78 January 27
 Fordsham, Cheshire County
 UK
 7
@@ -1290,7 +1126,7 @@ lamps on their heads, and these glowed purple. Cows on a nearby field seemed
 to become paralyzed and unable to move. Using a metal cage, the UFOnauts
 penned in one cow and seemed to measure it.
 
-78 February 01
+| 78 February 01
 Gainsborough, Lincolnshire
 UK
 7
@@ -1298,7 +1134,7 @@ The witness saw a large silvery disc-shaped object shoot overhead and land
 behind some nearby trees. Two figures about six feet tall were next seen
 standing next to the landed UFO.
 
-78 February 23
+| 78 February 23
 Sesto Fiorentino, Toscana
 Italy
 7
@@ -1307,13 +1143,13 @@ they began getting heavy interference on the radio. Mr. Morello got out of the
 car to investigate and found himself engulfed in a warm, violet cloud of light.
 He saw four humanoid "shapes" and other lights around him.
 
-78 March 18
+| 78 March 18
 Summerville
 SC
 7
 William J. Herrmann abduction case (section XIII).
 
-78 May 02
+| 78 May 02
 Escazu
 Costa Rica
 7
@@ -1326,7 +1162,7 @@ figure was about 170 meters tall. The cat also apparently observed the
 spectacle, since the animal's fur stood on end and it quickly scurried from the
 scene
 
-78 May 10
+| 78 May 10
 Pelotas, Rio Grande do Sul
 Brazil
 7
@@ -1337,7 +1173,7 @@ craft within a fiery ball of flames. The area around the witness seemed to
 darken, and he felt compelled to walk towards the fence. He was quickly
 grabbed by two short humanoids who wore shiny white tight fitting suits.
 
-78 July 04
+| 78 July 04
 Mt. Etna, Sicily
 Italy
 7
@@ -1345,7 +1181,7 @@ Saucer-shaped object 40' in diameter, transparent dome on top. Brightly-
 lighted, red in color. Two tall human-like beings. Long golden hair, wearing
 white robes. Three or four smaller beings with space suits and helmets.
 
-78 July 08
+| 78 July 08
 Lempdes, Puy-de-Dome
 France
 7
@@ -1357,7 +1193,7 @@ dome, surmounted by a white light. As he drove by he saw through a
 transparent wall in the UFO numerous human like figures wearing helmets and
 tight-fitting suits. Ground traces were found at the site.
 
-78 July 11
+| 78 July 11
 Can Cifre, Ibiza
 Spain
 7
@@ -1366,7 +1202,7 @@ the nearby woods. They were confronted by a strange robot-like being. As
 they ran to town they were chased by a bright blue light most of the way.
 Strange tracks were later found at the site of the encounter.
 
-78 July 16
+| 78 July 16
 Iracauba
 Brazil
 7
@@ -1374,7 +1210,7 @@ On this night J. R. B. and his family observed a dome-shaped metallic object
 land in a field. A short humanoid with greenish skin and large oval-shaped
 eyes emerged briefly from the craft.
 
-78 August 01
+| 78 August 01
 Clarksville
 TN
 7
@@ -1384,7 +1220,7 @@ and then heard a voice telling her to open her eyes. When she did she was
 confronted by a tall creature resembling an insect, thin and white in color,
 wearing a dark outfit. It communicated with her by using telepathy.
 
-78 August 26
+| 78 August 26
 Hyannis
 MA
 7
@@ -1392,7 +1228,7 @@ Two witnesses in a car on Cape Cod watched an oval-shaped craft hovering
 low over the US Route 6 road. Within the craft several figures could be seen
 moving about behind several rectangular windows.
 
-78 September 01
+| 78 September 01
 Llanerchymedd, Anglesey, Wales
 UK
 7
@@ -1403,7 +1239,7 @@ neighborhood dogs start barking furiously. A woman and her young daughter
 looked out and saw three tall men in gray uniforms with caps or helmets
 attached to their suits walk across a field.
 
-78 September 06
+| 78 September 06
 Venado Tuerto
 Argentina
 7
@@ -1411,7 +1247,7 @@ Round object, 30' in diameter, 15' high, hemispherical dome on top. Several
 round windows. Multicolored lights. One giant humanoid, over 7' tall. Green
 hand, blue conical nails, long gloves, cylindrical helmet.
 
-78 September 15
+| 78 September 15
 Delano
 TN
 7
@@ -1422,7 +1258,7 @@ be seen about 100 yards from window, too dark for details They started for the
 house, but then stopped and turned back. The UFO came in fast at this point
 and came very close to ground then left very fast climbing to the West.
 
-78 September 15
+| 78 September 15
 Carpentersville
 IL
 7
@@ -1435,7 +1271,7 @@ The witness then screamed at her husband to wake up, and her dog started
 barking furiously. They both tried to phone the police but the phone was not
 working.
 
-78 September 18
+| 78 September 18
 Melaria, Porto Nogaro district
 Italy
 7
@@ -1443,7 +1279,7 @@ Whistling sound, disc-shaped object with dome on mudflat. Small humanoid
 emerged, made repair to craft, took off with loud explosive sound (section
 XII).
 
-78 October 25
+| 78 October 25
 Tagliocozzo, Abruzzi
 Italy
 7
@@ -1453,7 +1289,7 @@ object shaped like a shoeshine box on the ground. Lighted windows
 surrounded the craft. He approached to within three feet and saw six to seven
 humanoid beings inside.
 
-78 November 11
+| 78 November 11
 Bragg Creek, Alberta
 Can
 7
@@ -1464,19 +1300,19 @@ witness was able to see several human-like figures standing behind the
 windows. At one point the witnesses became disoriented and there appears to
 have been some time loss.
 
-78 November 25
+| 78 November 25
 Kordel
 Germany
 7
 Pam Owens abduction case. (MUFON investigation report)
 
-78 November 25
+| 78 November 25
 Trier
 Germany
 7
 Pam Owens abduction case. (MUFON investigation report)
 
-78 December 03
+| 78 December 03
 Leme
 Brazil
 7
@@ -1484,7 +1320,7 @@ A brightly lit globular shaped object was seen flying at a low altitude over
 Leme. Several moving figures could be seen moving inside through a large
 opening.
 
-78 December 06
+| 78 December 06
 Siberia (Amur region of)
 Russia
 7
@@ -1493,7 +1329,7 @@ a mushroom was found apparently having crashed. The body of a short dwarf-
 like humanoid was found inside, which was delivered for autopsy to the
 scientific research institute in Novosibirsk.
 
-78 December 11
+| 78 December 11
 Navelli, Abruzzi
 Italy
 7
@@ -1502,7 +1338,7 @@ two luminous globes were blocking the road ahead. The engine of the vehicle
 then died. Two humanoids glided across the surface without touching the
 ground.
 
-78 December 11
+| 78 December 11
 Arembepe
 Brazil
 7
@@ -1510,7 +1346,7 @@ On this night a tall human-like figure with light colored skin, dark hair, and
 wearing a tight fitting silvery suit and boots was seen coming out of a metallic
 basin-shaped object about 12 meters in diameter that had landed in a field.
 
-78 December 12
+| 78 December 12
 Burghausen, Bavaria
 Germany
 7
@@ -1520,7 +1356,7 @@ beams of green light shot from it and she felt slightly paralyzed by one of
 them. Her watch had stopped at 08:01 a.m. and her car's ignition key, that she
 believed had been in her hand the entire time, was bent.
 
-78 December 12
+| 78 December 12
 Navelli (near)
 Italy
 7
@@ -1529,7 +1365,7 @@ two bright lights approaching slowly in his direction. As the lights approached
 Marinelli was able to make out two short human-like figures. The figures wore
 silvery suits, resembling those of astronauts.
 
-78 December 13
+| 78 December 13
 Brindisi AFB
 Italy
 7
@@ -1537,7 +1373,7 @@ Two soldiers on guard duty at the AFB saw a UFO with pulsating lights
 maneuver and hover near them. As the object was leaving a strange being shot
 up from the ground skywards, quickly disappearing from sight.
 
-78 December 14
+| 78 December 14
 Brewer
 ME
 7
@@ -1548,7 +1384,7 @@ about 50 feet from the road. He also felt himself sink into a trance. He
 remained fully aware but could not move a muscle. He then heard a voice say:
 "Do not be afraid.
 
-78 December 15
+| 78 December 15
 Ragusa
 Italy
 7
@@ -1556,7 +1392,7 @@ A truck driver suddenly experienced radio interference and stopped to fix it.
 He then saw two very tall humanoids standing only five meters away. Seconds
 later the witness saw a dome-shaped craft take off with a bright flash.
 
-78 December 15
+| 78 December 15
 Catania
 Italy
 7
@@ -1568,7 +1404,7 @@ beam. The being was described as "ugly" with two large eyes and two antenna-
 like protrusions on its head. A second similar being reportedly descended
 carrying a "laser" type gun and shot at a rock causing it to burn and explode
 
-78 December 16
+| 78 December 16
 Francavilla
 Italy
 7
@@ -1579,7 +1415,7 @@ standing in the garden at the adjacent apartment. They were very thin with
 large squarish heads and large feet. Both were wearing dark gray tight-fitting
 uniforms.
 
-78 December 28
+| 78 December 28
 Marzano Di Torriglia
 Italy
 7
