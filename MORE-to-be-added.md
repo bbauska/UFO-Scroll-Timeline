@@ -83,210 +83,30 @@
 | 67 August 26 | Eagle Lake, Allagash Waterway, Maine. | Campers saw glowing oval that beamed light down, engulfed canoe. Memory loss and abduction. (See section XIII bibliography, Fowler, 1990a.) |
 | 67 August 31 Time not reported | Cussac, FRANCE. | Two small humanoids in black garb were seen. They entered a disc-shaped craft and took off. Cows were agitated (animal reactions) during the sighting. (APRO Bulletin, Sept.-Oct. 1967, p. 8) |
 | 67 September 15 8:50 p.m. | Winsted, Connecticut. | Separate witnesses in Winsted reported seeing a large glowing, pulsating object hovering nearby and several small beings with large heads (humanoids) moving around it. The object's light dimmed when cars approached. (Report in NICAP files; Gillmor, 1969, p. 347.) |
-
-| 67 September 17
-Belo Horizonte, Minas Gerais State
-Brazil
-7
-Time not given. Two witnesses reported that a saucer with portholes landed on
-a soccer field. (Beings seen in association with the object were over 6 feet tall,
-hefty, used breathing apparatus, and had bulging eyes. (Baltimore Morning
-Sun, Maryland, 9/25/67, copy in NICAP files.)
-
-| 67 September 21
-Barcelona
-Spain
-7
-12:30 a.m. Small beings (humanoids) with large heads and white garb were
-seen moving toward a brilliant round object on the ground. Their car was lifted
-(mass displacement) and witnesses were in shock. (Ballester Olmos, 1976, p.
-12.)
-
-| 67 November 09
-Erin (near)
-TN
-7
-11:45 p.m. CST. Two nurses driving home from a Waverly, Tennessee
-hospital stopped for a traffic light in Erin, Tennessee. While stopped they saw
-a large UFO approach and land on the highway in front of them. The lights on
-their car went out. The next recollection was of the object high in the sky
-leaving them, but they perceived no time lapse nor did they ever check the
-time. (MUFON Sympap81, p. 23)
-
-| 67 November 19
-Calgary, Alberta
-CAN
-7
-5:45 p.m. MST. While walking home, a 14-year-old boy saw a silver-grayish
-object with flashing , multi-colored lights (body lights) around the center. The
-object was making a high-pitched sound. He ran home, discovered that 45
-minutes of time was missing, and an abduction was revealed under hypnosis.
-(Bondarchuk, 1979, pp. 83-88.)
-
-| 67 November 24
-Rio de Janeiro
-Brazil
-7
-2:30 p.m. Three small white-clad figures (humanoids) were seen around a disc
-that had a dome and red body lights. Physical traces were found at the site.
-(APRO Bulletin, Nov.-Dec. 1967, p. 3.)
-
-| 67 December 03
-Ashland
-NE
-7
-2:30 a.m.CST. A police patrolman (Herbert Schirmer) saw a hovering, bright
-aluminum, elliptical object estimated to be 15 feet tall and 20 feet wide with
-flashing red lights inside. Under hypnosis, the officer recalled EM effects on
-his vehicle, meeting with beings, and being on the craft. (Hall, 2001, p. 530-
-32, from: Blum and Blum, 1974, pp. 109-121; Gillmor, 1969, pp. 389-91;
-Story, 1980, pp. 318-19.)
-
-| 67 December 08
-Deputy
-IN
-7
-12:30 a.m. EST. A woman reported a large bowl-shaped orange object that
-levitated her, and she suffered unspecified physiological effects. She had a
-time confusion and later reported visits by small beings and physical marks
-left on her body (suggested abduction). (Ridge, 1994, p. 24.)
-
-| 67 December 08
-Idaho. Falls
-ID
-7
-7:40 p.m. MST. A 15-year-old girl saw a very bright white illuminated
-circular object (disc) the size of a car hovering over her house. (Hall, 2001, p.
-459, from: Keyhoe and Lore, 1969a, pp. 29-30.)
-
-| 68 February 01
-Criacao do Cabrito
-Azores
-7
-Serafim Vieira Sebastiao, a watchman at the Azores Air Station, saw "an oval
-object with a metallic gleam, topped by a glass tower with a small balustrade
-on which two beings were standing." (Magonia #904; FSR 68, 5)
-
-| 68 March 00
-Berezovsky (near)
-Russia
-7
-Alleged crash/retrieval on the web, and earlier shown on the History Channel.
-Shows footage of the alleged crashed UFO near Berezovsky (Sverdlovsk
-region) in 1968 and related alleged KGB documents.
-
-| 68 June 14
-Cabañas, Pinar Del Rio (near)
-Cuba
-7
-After midnight. Several bursts of machine gun fire were heard coming from a
-location in the vicinity where militia member Isidro Puentes Ventura was on
-guard duty. At dawn, Puentes was found unconscious by an Army patrol and
-taken to a hospital in Pinar Del Rio, where he remained in shock and unable to
-speak for six days. (Timothy Good, "Beyond Top Secret" quoting Jacques
-Vallee)
-
-| 68 June 19
-Cabreria
-Argentina
-7
-Night. A settler, Romulo Velasco, 25, saw a bright object land. From it
-emerged a strange "tall, slim being" who came toward the witness, who
-fainted. (Magonia #910, FSR 68, 5)
-
-| 68 July 01
-Ricardone
-Argentina
-7
-4:00 a.m. Raul Calcedo met two giants, almost 3 m tall, in Ricardone. He fled
-in terror, in spite of a strange power that tended to make him stay. (Magonia
-#913, FSR 68, 5)
-
-| 68 July 02
-Cofico
-Argentina
-7
-8:15 a.m. A boy, Sola, saw, a few meters away, a strange being, about 2.10 m
-tall, hovering in the air, his body emitting a peculiar glow, near a bright,
-unknown object. (Magonia #915, FSR 68, 5)
-
-| 68 July 02
-Sierra Chica
-Argentina
-7
-11:25 a.m. Oscar H. Iriart, 15, saw two men of normal height, with short,
-white hair and red clothes, semi-transparent legs, motioning to him. Near them
-was an elliptical, silvery machine, 2 m long, 60 cm high, with three 50 cm
-legs. (Magonia #916, FSR 68, 5)
-
-| 68 July 22
-Mendoza
-Argentina
-7
-1:20 a.m. Entities observed. Ms. Adela Casalvieri, night nurse at the
-Neuropsychiatry Hospital, heard a loud penetrating humming noise outside in
-the hospital courtyard. Going out to see what it was, she observed a saucer-
-shaped landed object only 20 meters away. It was brightly luminous and
-sitting in the middle of the courtyard. A luminous red beam came from the
-object and struck her, and she found that her legs were paralyzed. (David F.
-Webb & Ted Bloecher, HUMCAT: Catalogue of Humanoid Reports, case
-
-| 1968-89, citing G. J. Gianza Paz & A. M. Baragiola).
-68 July 31
-Plaine-des-Cafres, La Reunion Island
-Indian Ocean
-7
-9:00 a.m. Luce Fontaine, 31, a farmer, was in a clearing when he suddenly
-saw an oval object, 25 m away, less than 5 m above ground. In the object
-stood two beings, 90 cm tall, wearing coveralls. (Magonia #917, LDLN 96)
-
-| 68 August 07
-Buff Ledge
-VT
-7
-Dual abduction of male and female summer camp staff members. Independent
-recall of event years later (Section XIII, Vol. II, The UFO Evidence).
-
-| 68 August 12
-Mercedes
-Argentina
-7
-8:00 p.m. A woman staying by herself at a house on the outskirts of Mercedes
-heard a buzzing sound and her dogs began barking. The witness then saw a
-second object on the ground from which the figure of a man wearing a brilliant
-silvery outfit was seen to emerge. (Albert S. Rosales, Humanoid Contact
-Database 1968, case #6, citing Richard Heiden, quoting R. Banchs).
-
-| 68 August 27
-Lins
-Brazil
-7
-early. Maria Josa Cintra, who worked at the Clemente Ferreira Sanatorium,
-was awakened by a noise. At the front door was a "foreign-looking" woman of
-normal height, wearing light-colored clothes, and a headdress exposing only
-her face. (Magonia #918, FSR 69, 1)
-
-| 68 Fall
-Point Isabel
-OH
-7
-No time given. One witness (Abbott), humanoid report. (SRUFOS)
-
-| 68 September 01
-Mendoza
-Arg
-7
-Huge circular object hovering nearby, three small humanoids. Flying Saucer
-Review, November 1968; see Rodeghier,1981, p. 43 (E,L) car
-
-| 68 October 09
-Lins
-Brazil
-7
-6:20 a.m. Doribio Pereira, 41, municipal employee, suddenly observed a
-golden, cigar-shaped object, and a figure armed with a flashing weapon that
-immobilized him. Three beings were standing on a platform under the craft.
-(Magonia #920, FSR 69, 1)
+| 67 September 17 | Belo Horizonte, Minas Gerais State, BRAZIL. | Time not given. Two witnesses reported that a saucer with portholes landed on a soccer field. (Beings seen in association with the object were over 6 feet tall, hefty, used breathing apparatus, and had bulging eyes. (Baltimore Morning Sun, Maryland, 9/25/67, copy in NICAP files.) |
+| | 67 September 21 12:30 a.m. | Barcelona, SPAIN. | Small beings (humanoids) with large heads and white garb were seen moving toward a brilliant round object on the ground. Their car was lifted (mass displacement) and witnesses were in shock. (Ballester Olmos, 1976, p. 12.) | 
+| 67 November 09 11:45 p.m. | Erin (near), Tennessee. | Two nurses driving home from a Waverly, Tennessee hospital stopped for a traffic light in Erin, Tennessee. While stopped they saw a large UFO approach and land on the highway in front of them. The lights on their car went out. The next recollection was of the object high in the sky leaving them, but they perceived no time lapse nor did they ever check the time. (MUFON Sympap81, p. 23) |
+| 67 November 19 5:45 p.m. | Calgary, Alberta, CANADA. | While walking home, a 14-year-old boy saw a silver-grayish object with flashing , multi-colored lights (body lights) around the center. The object was making a high-pitched sound. He ran home, discovered that 45 minutes of time was missing, and an abduction was revealed under hypnosis. (Bondarchuk, 1979, pp. 83-88.) |
+| 67 November 24 - 2:30 p.m. | Rio de Janeiro, BRAZIL. | Three small white-clad figures (humanoids) were seen around a disc that had a dome and red body lights. Physical traces were found at the site. (APRO Bulletin, Nov.-Dec. 1967, p. 3.) |
+| 67 December 03 - 2:30 a.m. | Ashland, Nebraska. | A police patrolman (Herbert Schirmer) saw a hovering, bright aluminum, elliptical object estimated to be 15 feet tall and 20 feet wide with flashing red lights inside. Under hypnosis, the officer recalled EM effects on his vehicle, meeting with beings, and being on the craft. (Hall, 2001, p. 530-32, from: Blum and Blum, 1974, pp. 109-121; Gillmor, 1969, pp. 389-91; Story, 1980, pp. 318-19.) |
+| 67 December 08 - 12:30 a.m. | Deputy, Indiana. | A woman reported a large bowl-shaped orange object that levitated her, and she suffered unspecified physiological effects. She had a time confusion and later reported visits by small beings and physical marks left on her body (suggested abduction). (Ridge, 1994, p. 24.) |
+| 67 December 08 - 7:40 p.m. | Idaho Falls, Idaho. | A 15-year-old girl saw a very bright white illuminated circular object (disc) the size of a car hovering over her house. (Hall, 2001, p. 459, from: Keyhoe and Lore, 1969a, pp. 29-30.) |
+| 68 February 01 | Criacao do Cabrito, Azores. | Serafim Vieira Sebastiao, a watchman at the Azores Air Station, saw "an oval object with a metallic gleam, topped by a glass tower with a small balustrade on which two beings were standing." (Magonia #904; FSR 68, 5) |
+| 68 March | Berezovsky (near), RUSSIA. | Alleged crash/retrieval on the web, and earlier shown on the History Channel. Shows footage of the alleged crashed UFO near Berezovsky (Sverdlovsk region) in 1968 and related alleged KGB documents. |
+| 68 June 14 - After midnight. | Cabañas, Pinar Del Rio (near), CUBA. | Several bursts of machine gun fire were heard coming from a
+location in the vicinity where militia member Isidro Puentes Ventura was on guard duty. At dawn, Puentes was found unconscious by an Army patrol and taken to a hospital in Pinar Del Rio, where he remained in shock and unable to speak for six days. (Timothy Good, "Beyond Top Secret" quoting Jacques Vallee) |
+| 68 June 19 - Night | Cabreria, ARGENTINA. | A settler, Romulo Velasco, 25, saw a bright object land. From it emerged a strange "tall, slim being" who came toward the witness, who fainted. (Magonia #910, FSR 68, 5) |
+| 68 July 01 - 4:00 a.m. | Ricardone, ARGENTINA. | Raul Calcedo met two giants, almost 3 m tall, in Ricardone. He fled in terror, in spite of a strange power that tended to make him stay. (Magonia #913, FSR 68, 5) |
+| 68 July 02 - 8:15 a.m. | Cofico, ARGENTINA. |  A boy, Sola, saw, a few meters away, a strange being, about 2.10 m tall, hovering in the air, his body emitting a peculiar glow, near a bright, unknown object. (Magonia #915, FSR 68, 5) |
+| 68 July 02 - 11:25 a.m. |  Sierra Chica, ARGENTINA. | Oscar H. Iriart, 15, saw two men of normal height, with short, white hair and red clothes, semi-transparent legs, motioning to him. Near them was an elliptical, silvery machine, 2 m long, 60 cm high, with three 50 cm legs. (Magonia #916, FSR 68, 5) |
+| 68 July 22 1:20 a.m. | Mendoza, ARGENTINA. | Entities observed. Ms. Adela Casalvieri, night nurse at the Neuropsychiatry Hospital, heard a loud penetrating humming noise outside in the hospital courtyard. Going out to see what it was, she observed a saucer-shaped landed object only 20 meters away. It was brightly luminous and sitting in the middle of the courtyard. A luminous red beam came from the object and struck her, and she found that her legs were paralyzed. (David F. Webb & Ted Bloecher, HUMCAT: Catalogue of Humanoid Reports, case |
+| 68 August 07 | Buff Ledge, Vermont. | Dual abduction of male and female summer camp staff members. Independent recall of event years later (Section XIII, Vol. II, The UFO Evidence). |
+| 68 August 12 - 8:00 p.m. | Mercedes, ARGENTINA. | A woman staying by herself at a house on the outskirts of Mercedes heard a buzzing sound and her dogs began barking. The witness then saw a second object on the ground from which the figure of a man wearing a brilliant silvery outfit was seen to emerge. (Albert S. Rosales, Humanoid Contact Database 1968, case #6, citing Richard Heiden, quoting R. Banchs). |
+| 68 August 27 - early | Lins, BRAZIL. | Maria Josa Cintra, who worked at the Clemente Ferreira Sanatorium, was awakened by a noise. At the front door was a "foreign-looking" woman of normal height, wearing light-colored clothes, and a headdress exposing only her face. (Magonia #918, FSR 69, 1) |
+| 68 Fall - No time given. | Point Isabel, Ohio. |  One witness (Abbott), humanoid report. (SRUFOS) |
+| 68 September 01 | Mendoza, ARGENTINA. | Huge circular object hovering nearby, three small humanoids. Flying Saucer Review, November 1968; see Rodeghier,1981, p. 43 (E,L) car. |
+| 68 October 09 - 6:20 a.m. | Lins, BRAZIL. | Doribio Pereira, 41, municipal employee, suddenly observed a golden, cigar-shaped object, and a figure armed with a flashing weapon that immobilized him. Three beings were standing on a platform under the craft.
+(Magonia #920, FSR 69, 1) |
 
 | 68 November 00
 Kent
@@ -2740,31 +2560,14 @@ AU
 Knowles family encounter with oval object that buzzed car, car lifted off road,
 physical traces (section VI).
 
-88 March 20
-Unknown City
-WI
-7
-John Salter, Jr., and John, III, abduction (section XIII).
+| 88 March 20 | Unknown City, Wisconsin. | John Salter, Jr., and John, III, abduction (section XIII). |
+| 89 September 21-1007 | Voronezh, RUSSIA. | UFO sighting concentration in vicinity. Four landings and three different kinds of entities reported (sections VIII, XII); geodesic engineer saw maneuvering airship-like object September 24 (section IV). |
+} 89 November 30 | New York City, New York. | Linda Cortile's (pseudonym) abduction from 12th floor apartment, allegedly witnessed by international figure and security guards (Hopkins, 1996). |
+| 93 August 08 - Melbourne, Victoria, Australia. | Five people in two separate cars encountered UFO on road, experienced missing time. Memories returned gradually without hypnosis, including tall beings who abducted them (Chalker, 1996). |
+| 94 July 24 | Melbourne, Victoria, Australia. | Motorists encountered glowing orange oblong objects, one followed car; diamond-shaped object hovered overhead when they stopped to look. Missing time period discovered upon arrival home (Basterfield, 1997b). |
 
-89 September 21-1007
-Voronezh
-Russia
-7
-UFO sighting concentration in vicinity. Four landings and three different kinds
-of entities reported (sections VIII, XII); geodesic engineer saw maneuvering
-airship-like object September 24 (section IV).
 
-89 November 30 - New York City, New York.
-Linda Cortile's (pseudonym) abduction from 12th floor apartment, allegedly
-witnessed by international figure and security guards (Hopkins, 1996).
+| 1968-89, citing G. J. Gianza Paz & A. M. Baragiola).
+68 July 31 - 9:00 a.m. | Plaine-des-Cafres, La Reunion Island, Indian Ocean. | Luce Fontaine, 31, a farmer, was in a clearing when he suddenly saw an oval object, 25 m away, less than 5 m above ground. In the object stood two beings, 90 cm tall, wearing coveralls. (Magonia #917, LDLN 96) |
 
-93 August 08 - Melbourne, Victoria, Australia.
-Five people in two separate cars encountered UFO on road, experienced
-missing time. Memories returned gradually without hypnosis, including tall
-beings who abducted them (Chalker, 1996).
-
-94 July 24 - Melbourne, Victoria, Australia.
-Motorists encountered glowing orange oblong objects, one followed car;
-diamond-shaped object hovered overhead when they stopped to look. Missing
-time period discovered upon arrival home (Basterfield, 1997b).
 
