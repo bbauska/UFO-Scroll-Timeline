@@ -119,63 +119,15 @@
 | 71 July 27 - 8:30 p.m. | Valcourt, Quebec, CANADA. | The witness was at home watching television when he was distracted by the sounds of his cows bellowing on a nearby field. They also saw a dark spherical object hovering above the field, a reddish light shone out of what appeared to be an open door on the object. Three small men who glowed a pale green color were moving around the object. They seem to glide just above the ground in rapid darting movements. (HC addition # 1011, Source: Francois Bourbeau, Spectra, Quebec Canada, Type: B) |
 | 72 September 20 | Howard, Indiana. | Humanoid report. No details, but witness' name was Eastman.(EGBA, Page 673) |
 | 72 October 14 - 2:00 p.m. | McChord AFB, Washington. | Two airmen were instructed to check the tactical air navigational (TACAN) facility located eight miles east of McChord Air Force Base. Briggs exited the building to investigate the sound. Once outside, Briggs observed a saucer shaped object directly above the TACAN building. Briggs watched as the object landed just south of the TACAN compound. Briggs was startled by the object and entered the TACAN building to summoned Hillsgeck. Once Hillsgeck and Briggs exited the building together, they observed two "creatures" walking towards the fence. (See report by Bill Hamilton) |
-
 | 72 November 26 | Bt. Bedoga Bay and Woodland, California. | Judy Kendall abduction, three types of beings (UFOE II, Section XIII). |
 | 73 February 14 | McAlester, Oklahoma. | Disc Cavorts Near Airliner / Confirmed By Radar. |
-
-| 73 May 00
-Catanduva, Sao Paulo (near)
-Brazil
-7
-A man and his wife employed at the Fazenda Secap claimed to have seen an
-oval shaped flying craft, "with two figures like people, in big hats and linked
-together by a sort of tube."
-
-| 73 July 00 | 
-Kokkaido
-Japan
-7
-Witness said light descended to an altitude of about 20 meters (75 feet) above
-the surface of the water and stopped, and then from the underside of the light
-came what appeared to be a glass-like transparent tube
-
-| 73 August 09 | 
-Exeter
-NH
-7
-A father and his son were driving along a main highway in the Exeter area
-when they saw a landed UFO alongside the highway. A humanoid was
-standing beside it.
-
-| 73 August 10 | 
-Ibague
-Columbia
-7
-Four grade-school students and a policeman saw four small humanoids
-beneath a bridge.
-
-| 73 August 27 | 
-Greensburg
-PA
-7
-On this night a woman reported seeing a large boomerang shaped craft
-hovering over a heavily wooded area in Beech Hill. When her husband went
-out to investigate he encountered a large hairy, biped creature with a wolf-like
-face.
-
-| 73 September 09 | 
-Savannah
-GA
-7
-"Ten big, black hairy dogs" emerged from a landed UFO in Laurel Grove
-Cemetery and ran through the cemetery.
-
-| 73 September 27 | 
-Bedarrides
-France
-7
-Humanoid occupant case. No details. (UFOE II, Section XII).
-
+| 73 May 00 | Catanduva, Sao Paulo (near), BRAZIL. | A man and his wife employed at the Fazenda Secap claimed to have seen an oval shaped flying craft, "with two figures like people, in big hats and linked together by a sort of tube." |
+| 73 July 00 | Kokkaido, JAPAN. | Witness said light descended to an altitude of about 20 meters (75 feet) above the surface of the water and stopped, and then from the underside of the light came what appeared to be a glass-like transparent tube. |
+| 73 August 09 | Exeter, New Hampshire. | A father and his son were driving along a main highway in the Exeter area when they saw a landed UFO alongside the highway. A humanoid was standing beside it. |
+| 73 August 10 | Ibague, COLUMBIA. | Four grade-school students and a policeman saw four small humanoids beneath a bridge. |
+| 73 August 27 | Greensburg, Pennsylvania. | On this night a woman reported seeing a large boomerang shaped craft hovering over a heavily wooded area in Beech Hill. When her husband went out to investigate he encountered a large hairy, biped creature with a wolf-like face. |
+| 73 September 09 | Savannah, Georgia. | "Ten big, black hairy dogs" emerged from a landed UFO in Laurel Grove Cemetery and ran through the cemetery. |
+| 73 September 27 | Bedarrides, FRANCE. | Humanoid occupant case. No details. (UFOE II, Section XII). |
 | 73 October 00 | 
 Uden
 Netherlands
@@ -191,43 +143,11 @@ Three teenagers saw a huge-hairy robot-like creature that walked mechanically
 with its hands upraised. It had a large round head. An egg-shaped UFO was
 also seen at the same time.
 
-| 73 October 05 | 
-Saint-Mathias-de-Chambly
-CAN
-7
-Five small humanoids in orange garb observed in vicinity of orange domelike
-object.
-
-| 73 October 10 | 
-Magnolia
-MS
-7
-Round, shiny, metallic object on or near ground, something rectangular about
-the size of a small person emerged; later reentered, and object took off.
-(UFOE II, page 341)
-
-| 73 October 11 | 
-Pascagoula
-MS
-7
-E
-5
-Hickson/Parker Incident
-
-| 73 October 11 | 
-Tanner Williams
-AL
-7
-A three-year old boy reported to his mother that he had been playing with
-"some old monster" in the backyard. He said it was gray with wrinkled skin
-and pointed ears.
-
-| 73 October 12 | 
-Cincinnati
-OH
-7
-Humanoid being observed in object like transparent "bell jar" (UFOE II,
-Section XII)
+| 73 October 05 | Saint-Mathias-de-Chambly, CANADA. | Five small humanoids in orange garb observed in vicinity of orange domelike object. |
+| 73 October 10 | Magnolia, Mississippi. | Round, shiny, metallic object on or near ground, something rectangular about the size of a small person emerged; later reentered, and object took off. (UFOE II, page 341) |
+| 73 October 11 | Pascagoula, Mississippi. | Hickson/Parker Incident. |
+| 73 October 11 | Tanner Williams, Alabama. | A three-year old boy reported to his mother that he had been playing with "some old monster" in the backyard. He said it was gray with wrinkled skin and pointed ears. |
+| 73 October 12 | Cincinnati, Ohio. | Humanoid being observed in object like transparent "bell jar" (UFOE II, Section XII) |
 
 | 73 October 15 | 
 Omro
