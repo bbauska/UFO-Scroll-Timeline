@@ -185,26 +185,8 @@
 | 76 February 10 | Hamden, CT. | On Denslow Hill two 14-year-old teenagers, Grey and Barnet, saw two very short humanoid beings shuffle rapidly across a road. They wore purple-colored luminous one-piece suits and their waists were 20-22 inches above the ground. (Source: James P. Barrett, case investigation files, and HUMCAT: Catalogue of Humanoid Encounters, case A1457). |
 | 76 February 22 | Great Falls (near), MT. | 10:00 a.m. Leonard Hegele, a 29-year old student, spotted a seven-foot tall humanoid with three-foot wide shoulders walking through a field about a mile from Interstate I-15 south of Great Falls, Montana. It walked with a non-human gait. (Sources: David F. Webb & Ted Bloecher, HUMCAT: Catalogue of Humanoid Reports, case 1976-41 (A1463), citing Jerome Clark; Great Falls Tribune, February 23, 1976). |
 | 76 February 25 | Maneru, Spain. | 4:00 p.m. Five school children saw a UFO descend and land in a nearby field. The UFO was 8-10 meters wide, and had a transparent dome. A two-meter tall being emerged dressed in a black coverall suit. (Source: Gordon Creighton, FSR, April 1977, p. 27). |
-| 76 February 25 | 
-Nashville
-IL
-7
-Evening. Humanoid report. Woman encountered two "beings" while driving
-on a country road NW of Nashville. The being flashed a blue light at her
-before she sped away. Beings described as very tall "with large feet and no
-necks." (MUFON 100-7, CUFOS-AP) |
-
-| 76 March 03 | 
-Refrigerio
-Brazil
-7
-4:00 p.m. A 12-year-old boy named Ojeda saw a 40-foot in diameter shiny
-disc in a clearing in the forest in Refrigerio, Brazil. It sat upon some type of
-metallic platform. Two beings in shiny suits, less than five feet tall, were seen
-outside making repairs. (Source: David F. Webb & Ted Bloecher, HUMCAT:
-Catalogue of Humanoid Reports, case A1465, citing Gray Barker, UFO
-Report, June 1977, p. 37). |
-
+| 76 February 25 | Nashville, IL. | Evening. Humanoid report. Woman encountered two "beings" while driving on a country road NW of Nashville. The being flashed a blue light at her before she sped away. Beings described as very tall "with large feet and no necks." (MUFON 100-7, CUFOS-AP) |
+| 76 March 03 | Refrigerio, Brazil. | 4:00 p.m. A 12-year-old boy named Ojeda saw a 40-foot in diameter shiny disc in a clearing in the forest in Refrigerio, Brazil. It sat upon some type of metallic platform. Two beings in shiny suits, less than five feet tall, were seen outside making repairs. (Source: David F. Webb & Ted Bloecher, HUMCAT: Catalogue of Humanoid Reports, case A1465, citing Gray Barker, UFO Report, June 1977, p. 37). |
 | 76 April 02 | Chalus, IRAN. | Mr. Bazargani from Chalus, Iran was walking through a forest near his home on this day in 1976 when he had a UFO stop directly overhead. He realized he was paralyzed and could not move when he saw four beings emerge from the craft via a ladder. (Source: David F. Webb and Ted Bloecher, HUMCAT: Catalogue of Humanoid Reports, case A1466). |
 | 76 April 23 -  | Flintville, Tennessee. | Humanoid report, witnessed by Robertson. (EGBA,493). |
 | 76 April 23 - 11:15 p.m. | Matapozuelos, SPAIN. | While half the town was watching a reddish oval shaped craft maneuvering overhead, 14-year-old Fidel Hernandez Rolla was playing with some friends in a field outside of town, when they saw the reddish spheres slowly descend and land on a nearby field. The craft was topped by a crystal dome and inside the dome several very tall, human-like figures could be seen moving about. He then saw three tall man-like figures appear from behind the object, not very far from his location. (Source: Albert S. Rosales, Humanoid Contact Database 1976, citing Iker Jimenez, Enigmas Sin Resolver). |
@@ -212,194 +194,28 @@ Report, June 1977, p. 37). |
 76 May 14 | Olavarria, ARGENTINA. | Mr. Urruti, age 47, was driving his truck when he encountered an unusual fog while crossing over a bridge. An oyster shaped UFO emitted a blinding light beam, and both he and his truck were somehow picked up and abducted. (Sources: FSR, October 1976, p. 31, citing La Razon, May 22, 1976; Geoffrey Falla, BUFORA Vehicle Interference Project Report, p. 77; Thomas E. Bullard, UFO Abductions: The Measure of a Mystery, case 92, citing FSR; David F. Webb & Ted Bloecher, HUMCAT: Catalogue of Humanoid Reports, case A1472, citing La Razon). |
 | 76 May 18 - 10:30 p.m. | Sant'Onofrio, Abruzzi, ITALY. | A man and his family observed a large, house-sized object hovering close to a nearby hill. The object approached the witnesses' home and from its top section a strong yellow light was directed over the area. The UFO had a large round opening from which a red light shone. From inside the porthole a dark, shadowy, man-like figure could be seen looking out at the witnesses for a brief period. (Source: Maurizio Verga, ITACAT Italian catalogue, case 85) |
 | 76 May 20 | Jamestown, Tennessee. | C1, one witness, no details. (EGBA,494) |
-
-76 May 21
-Alamogordo
-NM
-7
-A luminous UFO shaped like coolie hat paced a car in the desert near
-Alamogordo, containing three occupants. One of the passengers, a 28-year-old
-woman named Bryant, experienced five hours of missing time and later related
-an abduction experience. She reported being taken aboard the UFO where she
-was given intensive medical examinations and had several body samples
-taken. (Sources: Thomas E. Bullard, UFO Abductions: The Measure of a
-Mystery, case 093, citing the San Antonio (Texas) Light, March 20, 1983;
-John F. Schuessler, Physiological Effects from UFOs, p. 70).
-
-| 76 June 22
-Galdar, Canary Islands
-W. Africa
-7
-10:30 p.m. Spherical object, transparent, huge, brightly luminous, no sound.
-Two human-like beings over 6' tall, flesh color, large bright eyes. Pointed
-wing-like appendages for hands. Brilliant red suits covered body, halo around
-heads. Object moved in, hovered, made 90-degree turns. Diameter varied
-greatly. Occupants visible inside object operating instrument panel. Object
-departed out to sea. (Bruno Molon CEIII study)
-
-| 76 July 05
-Gitchie Manitou Park
-IA
-7
-9:00 a.m. Two brothers, 8-year-old Andy and 6 year-old Joel Rygh were
-playing when they heard "strange noises followed by a grunting sound and
-then a whistle." When they looked in the direction of the noises they saw a
-seven-foot tall man standing behind a bush. (Source: Pat Miller, Sioux Falls
-(SD) Argus-Leader, August 15, 1976).
-
-| 76 October 00
-Rigdon
-IN
-7
-Abduction report. Two witnesses. Disc observed. Confidential report.
-(MUFON Indiana, Ridge files)
-
-| 77 January 04
-Carapito Beira Alta
-Portugal
-7
-12:30 a.m. A man was training his German shepherd dog in a pine grove when
-the animal suddenly became agitated and sat next to him. He then saw
-hovering 10 meters from the ground a dark metallic domed object that was
-emitting a beeping sound. Near the object was a very tall, heavy set figure,
-human like.
-
-| 77 January 27
-Prospect
-KY
-7
-1:05 AM. A teenager spotted a rectangular, orangish-red object coming down
-to near his jeep. Later under hypnosis, however, he related being taken inside
-the object and examined by three strange creatures who were shaped like
-machines. (Source: Mark Rodeghier, UFO Reports Involving Vehicle
-Interference, case 406, citing CUFOS; IUR,2,4)
-
-| 77 January 27
-Clarksville
-TN
-7
-Evening. Humanoid report. Concerned businessman while driving through
-Clarksville had a bizarre experience. (MUJ-110)
-
-77 February 24
-Langenargen, Lake Constance
-Germany
-7
-Humanoid encounter (NICAP UFOE II, Section XII).
-
-| 77 March 05
-McNatt
-MO
-7
-11:00 PM. Lonnie Stites and his wife, Deborah, were driving their pickup
-truck around a bend in the road when "the whole area lit up like a football
-field light was turned on, and a very bright light was shined on our
-windshield." He saw a man of normal height or slightly smaller stature
-standing alongside the road. He was human looking, but dressed in green
-coveralls with square glasses and a tight green cap over his ears. He was
-"waving us down." (Source: David F. Webb & Ted Bloecher, HUMCAT:
-Catalogue of Humanoid Reports, case 1977-11, citing Monte Blue Skelton &
-Bob Pratt).
-
-| 77 March 07
-Winchester, Hampshire
-UK
-7
-9:00 PM. Mrs. Jane Bowles was driving with a friend, Mrs. Ann Strickland,
-along a country road when their car stopped and a brilliant glow "like a white
-sun" lit up the area around them. An oval object was observed that was
-luminous and making a humming sound. (Source: David F. Webb and Ted
-Bloecher, HUMCAT: Catalogue of Humanoid Encounters, case 1977-12,
-citing Lionel Beer, BUFORA).
-
-| 77 March 13
-Pen-Y-Cwm, Pembrokeshire
-Wales
-7
-9:00 PM. Stephen Taylor, age 17, was walking home from a visit to his
-girlfriend's house when he saw an orange, luminous, pear-shaped UFO in the
-sky. Around its underside there was a dim glow of light. As he watched he
-heard footsteps, and looking around only a few yards away was a figure "like
-a skinny human six-foot tall." HUMCAT: Catalogue of Humanoid Reports,
-case 1977 -13, citing Randall Jones Pugh, BUFORA).
-
-| 77 March 20
-Pebble Beach
-CA
-7
-On this night a husband and wife were in a pair of sleeping bags by the
-seashore when they saw a bright disc-shaped object come from the ocean
-straight towards them. The woman had a brief recollection of seeing several
-tall humanoids without mouths, who communicated with her telepathically
-and showed her a book.
-
-| 77 April 04
-Tucson
-AZ
-7
-1:30 AM. A 52-year-old woman was watching jackrabbits by moonlight on
-the Veterans Administration Hospital grounds when she heard a whirring
-noise and looked up to see a luminous white UFO coming down for a landing.
-Then a human like figure, well over six-foot tall with very broad shoulders,
-walked toward her from the UFO.
-
-| 77 April 04
-Gorham
-NH
-7
-8:15 PM.. Susanne Fortier was walking on the lawn behind her house with her
-collie dog. Whe heard a sound like a "wind or whistle" and she then observed
-a small object land in the vicinity of the children's playhouse. It was about five
-feet in diameter, with eight "pods or legs", windows or doors all around it, and
-an antenna on top. The interior was a bright red, and it contained six three-foot-
-tall occupants who had long slit-like eyes, ape like noses, and no hair. (Source:
-David F. Webb & Ted Bloecher, HUMCAT: Catalogue of Humanoid Reports,
-case 1977-15, citing investigator Mrs. Lorraine Duchesne, MUFON).
-
-| 77 April 06
-Ste. Dorothee, Quebec
-CAN
-7
-7:00 PM. The witness, a woman in her thirties living on Rue Cleroux, Ste. was
-in her kitchen when she saw a strong light come in her back window. When
-she raised the blind she saw a disc-shaped object with a dazzling, pulsating
-white luminosity, about 35 feet in diameter. After four or five minutes a
-humanoid being appeared, visible from the waist up because of the terrain. He
-had a helmeted head, shiny red and metallic shoulders, and was seen from the
-rear. He appeared in front of the object. (Sources: Marc Leduc, UFO Quebec,
-April 1977, issue # 10; HUMCAT: Catalogue of Humanoid Reports, case
-1977-74, citing Marc Leduc).
-
+| 76 May 21 | Alamogordo, NM. | A luminous UFO shaped like coolie hat paced a car in the desert near Alamogordo, containing three occupants. One of the passengers, a 28-year-old woman named Bryant, experienced five hours of missing time and later related an abduction experience. She reported being taken aboard the UFO where she was given intensive medical examinations and had several body samples taken. (Sources: Thomas E. Bullard, UFO Abductions: The Measure of a Mystery, case 093, citing the San Antonio (Texas) Light, March 20, 1983; John F. Schuessler, Physiological Effects from UFOs, p. 70). |
+| 76 June 22 | Galdar, Canary Islands, W. Africa. | 10:30 p.m. Spherical object, transparent, huge, brightly luminous, no sound. Two human-like beings over 6' tall, flesh color, large bright eyes. Pointed wing-like appendages for hands. Brilliant red suits covered body, halo around heads. Object moved in, hovered, made 90-degree turns. Diameter varied greatly. Occupants visible inside object operating instrument panel. Object departed out to sea. (Bruno Molon CEIII study) |
+| 76 July 05 | Gitchie Manitou Park, IA. | 9:00 a.m. Two brothers, 8-year-old Andy and 6 year-old Joel Rygh were playing when they heard "strange noises followed by a grunting sound and then a whistle." When they looked in the direction of the noises they saw a seven-foot tall man standing behind a bush. (Source: Pat Miller, Sioux Falls (SD) Argus-Leader, August 15, 1976). |
+| 76 October 00 | Rigdon, IN. | Abduction report. Two witnesses. Disc observed. Confidential report. (MUFON Indiana, Ridge files) |
+| 77 January 04 | Carapito Beira Alta, Portugal. | 12:30 a.m. A man was training his German shepherd dog in a pine grove when the animal suddenly became agitated and sat next to him. He then saw hovering 10 meters from the ground a dark metallic domed object that was emitting a beeping sound. Near the object was a very tall, heavy set figure, human like. |
+| 77 January 27 | Prospect, KY. | 1:05 AM. A teenager spotted a rectangular, orangish-red object coming down to near his jeep. Later under hypnosis, however, he related being taken inside the object and examined by three strange creatures who were shaped like machines. (Source: Mark Rodeghier, UFO Reports Involving Vehicle Interference, case 406, citing CUFOS; IUR,2,4) |
+| 77 January 27 | Clarksville, TN. | Evening. Humanoid report. Concerned businessman while driving through Clarksville had a bizarre experience. (MUJ-110) |
+| 77 February 24 | Langenargen, Lake Constance, Germany. | Humanoid encounter (NICAP UFOE II, Section XII). |
+| 77 March 05 | McNatt, MO. | 11:00 PM. Lonnie Stites and his wife, Deborah, were driving their pickup truck around a bend in the road when "the whole area lit up like a football field light was turned on, and a very bright light was shined on our windshield." He saw a man of normal height or slightly smaller stature standing alongside the road. He was human looking, but dressed in green coveralls with square glasses and a tight green cap over his ears. He was "waving us down." (Source: David F. Webb & Ted Bloecher, HUMCAT: Catalogue of Humanoid Reports, case 1977-11, citing Monte Blue Skelton & Bob Pratt). |
+| 77 March 07 | Winchester, Hampshire, UK. | 9:00 PM. Mrs. Jane Bowles was driving with a friend, Mrs. Ann Strickland, along a country road when their car stopped and a brilliant glow "like a white sun" lit up the area around them. An oval object was observed that was luminous and making a humming sound. (Source: David F. Webb and Ted Bloecher, HUMCAT: Catalogue of Humanoid Encounters, case 1977-12, citing Lionel Beer, BUFORA). |
+| 77 March 13 | Pen-Y-Cwm, Pembrokeshire, Wales. | 9:00 PM. Stephen Taylor, age 17, was walking home from a visit to his girlfriend's house when he saw an orange, luminous, pear-shaped UFO in the sky. Around its underside there was a dim glow of light. As he watched he heard footsteps, and looking around only a few yards away was a figure "like a skinny human six-foot tall." HUMCAT: Catalogue of Humanoid Reports, case 1977 -13, citing Randall Jones Pugh, BUFORA). |
+| 77 March 20 | Pebble Beach, CA. | On this night a husband and wife were in a pair of sleeping bags by the seashore when they saw a bright disc-shaped object come from the ocean straight towards them. The woman had a brief recollection of seeing several tall humanoids without mouths, who communicated with her telepathically and showed her a book. |
+| 77 April 04 | Tucson, AZ. | 1:30 AM. A 52-year-old woman was watching jackrabbits by moonlight on the Veterans Administration Hospital grounds when she heard a whirring noise and looked up to see a luminous white UFO coming down for a landing. Then a human like figure, well over six-foot tall with very broad shoulders, walked toward her from the UFO. |
+| 77 April 04 | Gorham, NH. | 8:15 PM.. Susanne Fortier was walking on the lawn behind her house with her collie dog. Whe heard a sound like a "wind or whistle" and she then observed a small object land in the vicinity of the children's playhouse. It was about five feet in diameter, with eight "pods or legs", windows or doors all around it, and an antenna on top. The interior was a bright red, and it contained six three-foot- tall occupants who had long slit-like eyes, ape like noses, and no hair. (Source: David F. Webb & Ted Bloecher, HUMCAT: Catalogue of Humanoid Reports, case 1977-15, citing investigator Mrs. Lorraine Duchesne, MUFON). |
+| 77 April 06 | Ste. Dorothee, Quebec, CAN. | 7:00 PM. The witness, a woman in her thirties living on Rue Cleroux, Ste. was in her kitchen when she saw a strong light come in her back window. When she raised the blind she saw a disc-shaped object with a dazzling, pulsating white luminosity, about 35 feet in diameter. After four or five minutes a humanoid being appeared, visible from the waist up because of the terrain. He had a helmeted head, shiny red and metallic shoulders, and was seen from the rear. He appeared in front of the object. (Sources: Marc Leduc, UFO Quebec, April 1977, issue # 10; HUMCAT: Catalogue of Humanoid Reports, case 1977-74, citing Marc Leduc). |
 | 77 April 07 - 5:00 a.m.| Milford Haven, Pembrokeshire, WALES. | Mr. Cyril John, age 64, a former local political leader, was up early for an early start to London when he noticed a light shining in his bedroom window. Looking out he observed two objects. The first was a silvery-gray egg-shaped object with a bright orange-red light on top of it. It was about four feet across and was rocking gently in the air about 60 meters away. The second was a seven to eight foot tall humanoid figure, who floated in the air with arms out and legs bent back, like a "free fall parachutist." (Source: David F. Webb and Ted Bloecher, HUMCAT: Catalogue of Humanoid Reports, case 1977-17 [A1719], citing Randall Jones Pugh, British UFO Research Association). |
 | 77 April 12 | Rising Sun, Indiana. | Humanoid report. No details. (EGBA,680). |
 | 77 April 12 - 3:30 p.m. | Tucson, Arizona. | Two young girls walking under a highway overpass by a canal in were following a path up a small hill when they saw a UFO hovering above some nearby brush. From out of some bushes beneath where the object had been hovering, a thin, human-like figure emerged. It had long brown hair and was wearing a blue top and dark pants, but it also wore strange looking boots. (Source: Albert S. Rosales, Humanoid Contact Database 1977, case # 1810, citing Virgilio Sanchez Ocejo, Destino, Vol. 27 # 3, quoting APRO). |
 | 77 April 19 - 2:00 a.m. | Little Haven, Pembrokeshire, WALES. | The radio of hotel owner Rosa Gremville suddenly went dead. Moments later she heard a loud humming noise outside and looking out she was dazzled by a "huge moon lighting up the area, moving about like a seesaw." It descended and landed in a field 100 yards behind the hotel. Two creatures 8 or 9-feet tall emerged from the dome through the flames. (Sources: David F. Webb and Ted Bloecher, HUMCAT: Catalogue of Humanoid Reports, case 1977-18; Randall Jones Pugh, FSR, August 1977, p. 6 for BUFORA). |
 | 77 April 20 | Herbrandston, Pembrokeshire, Wales, UNITED KINGDOM. | Mark Marston, age 11, was looking for bird's nests in a hedge  when "a red glow appeared in the sky 50 yards away." A few moments later a figure appeared and drifted through a closed gate at the other end of the field. It was dressed in a silver suit, like a diver, with a large helmet and a square, featureless face. |
-| 77 April 25 | 
-Pampa Lluscuma
-Chile
-7
-3:50 AM. Eight soldiers on a military patrol suddenly saw a bright light
-nearby. The soldiers' dog and horses remained still while the lights hovered
-nearby. The leader of the group, Corporal Armando Valdes, ordered the other
-soldiers to put out their campfire. The two large lights were about 800 meters
-away, and hovering close to the ground. Cpl. Valdes suddenly reappeared. He
-had a strange look on his face and he emitted a sinister laugh, asking several
-times where his mother was. (Source: Albert S. Rosales, Humanoid Contact
-Database 1977, case # 3062, citing Diego Contreras & Raul Nunez).
-
-| 77 May 05 | 
-Ragusa (near)
-Italy
-7
-Midnight. The witness, a truck driver, had made a rest stop at a truck stop on
-the major highway near Ragusa, Italy when he saw a yellow light illuminate
-the cab. The light originated from a gray metallic, oval-shaped object that was
-hovering near the truck and close to the ground. A figure wearing a dark gray
-coverall and a helmet could be seen inside one of the openings. It seemed to be
-controlling and directing the yellow beam of light. (Sources: Maurizio Verga,
-ITACAT: Italian UFO catalogue, case 93; Albert S. Rosales, Humanoid
-Contact Database 1977, case # 1522, citing ITACAT).
+| 77 April 25 | Pampa Lluscuma, Chile. | 3:50 AM. Eight soldiers on a military patrol suddenly saw a bright light nearby. The soldiers' dog and horses remained still while the lights hovered nearby. The leader of the group, Corporal Armando Valdes, ordered the other soldiers to put out their campfire. The two large lights were about 800 meters away, and hovering close to the ground. Cpl. Valdes suddenly reappeared. He had a strange look on his face and he emitted a sinister laugh, asking several times where his mother was. (Source: Albert S. Rosales, Humanoid Contact Database 1977, case # 3062, citing Diego Contreras & Raul Nunez). |
+| 77 May 05 | Ragusa (near), Italy. | Midnight. The witness, a truck driver, had made a rest stop at a truck stop on the major highway near Ragusa, Italy when he saw a yellow light illuminate the cab. The light originated from a gray metallic, oval-shaped object that was hovering near the truck and close to the ground. A figure wearing a dark gray coverall and a helmet could be seen inside one of the openings. It seemed to be controlling and directing the yellow beam of light. (Sources: Maurizio Verga, ITACAT: Italian UFO catalogue, case 93; Albert S. Rosales, Humanoid Contact Database 1977, case # 1522, citing ITACAT). |
 
 | 77 May 18 | 
 Pacific
