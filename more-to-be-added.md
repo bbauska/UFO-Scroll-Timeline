@@ -365,7 +365,7 @@ strange for that. Investigator: Bob Denton, for QUFORB. Source: Summary in Keith
 Australian CEIII references, courtesy of David Webb.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <p><b>February 20, 2026:</b> The administration directs federal agencies and the Pentagon to identify and declassify 
-government UFO/UAP files.</p>p>
+government UFO/UAP files.</p>
 
 <p><b>May 8, 2026:</b> The first official PURSUE tranche of declassified records, photos, videos, and historical files 
 is published on the PURSUE Government Website.
