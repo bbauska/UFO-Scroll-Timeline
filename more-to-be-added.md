@@ -364,14 +364,29 @@ from a visiting children's show ("Snow White's dwards"), but they concluded the 
 strange for that. Investigator: Bob Denton, for QUFORB. Source: Summary in Keith Basterfield's list of 
 Australian CEIII references, courtesy of David Webb.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<p><b></p>
+<p><b>February 20, 2026:</b> The administration directs federal agencies and the Pentagon to identify and declassify 
+government UFO/UAP files.</p>p>
+
+<p><b>May 8, 2026:</b> The first official PURSUE tranche of declassified records, photos, videos, and historical files 
+is published on the PURSUE Government Website.
+https://www.war.gov/ufo/</p>
+
+<p><b>June 12, 2026:</b> The third batch of declassified files (72 files spanning the 1940s to 2026 from the FBI, CIA, 
+NASA, and DoD) is released.</p>
+
+<p><b>September 18, 2026:</b> A Pentagon release of 71 files (including 37 DIRDs and AAWSAP-related data covering 1952–2025) 
+is published via CBS News.
+https://www.cbsnews.com/news/ufo-files-uap-pentagon-6th-release/</p>
+
+<p><b>October 23, 2026:</b> The seventh tranche under PURSUE drops, featuring military accounts of triangle and cylinder-
+shaped craft near sensitive sites.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<p><b></p>
+<p><b></b></p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<p><b></p>
+<p><b></b></p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<p><b></p>
+<p><b></b></p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<p><b></p>
+<p><b></b></p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
