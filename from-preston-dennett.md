@@ -1,5 +1,5 @@
 <!--############################################################################################-->
-episode 204.
+<h2>episode 204.</h2>
 
 On the morning of Jul 20, 1965, milkman Ramon Eduardo Pereyra was making deliveries in Quilmes, Argentina when he saw a strange craft land nearby. He exited his vehicle and hiked to the location. To his shock, he came upon a small craft with a man inside. Suddenly another man approached, ignored Ramon, entered the craft, which promptly took off.
 
@@ -23,7 +23,8 @@ While driving home from the hospital in Temperanceville, VA, Marlene LaRose (a n
 Throughout 1986, many people driving along a small stretch of road outside of Josza, Hungary reported seeing UFOs, being followed, and watching UFOs land in the fields. Then, on Jan 9, 1987, a highway worker came upon a landed craft and three short humanoids. One stood in a doorway, while the other two stood beneath the craft. The witness fled in fear. Meanwhile, the encounters continued.
 
 <!--############################################################################################-->
-episode 203.
+<h2>episode 203.</h2>
+
 1951 August 14. - Afternoon. - 
 On the afternoon of Aug 14, 1951, a farmer approached a cemetery near his home town of Voghenza, Italy and saw a landed 
 craft and six 4-foot-tall humanoids standing next to it. They wore shiny white jumpsuits and fishbowl helmets, and had 
@@ -59,7 +60,7 @@ On the night of Jun 6, 2018, four people were in the woods outside of Siletz, OR
 Around 4am on Jun 1, 2023, two garbage men were on their route near Mifflin, OH when they saw a tall, thin, gray-skinned skinny figure with large dark eyes staring at them from the woods a short distance away. One of the men walked towards it, and the figure bounded off into the trees and disappeared.
 
 <!--############################################################################################-->
-episode 202.
+<h2>episode 202.</h2>
 
 1956 February 23 - 
 On Feb 23, 1956, Frederick S Briggs, a former Army officer, was riding his bike on the estate of Lord Mountbatten of Burma in Romsey, England when he saw a flying saucer hovering overhead. He found himself unable to move as a platform holding a human-looking figure descended from the bottom of the craft. Upon reaching the ground, the ET apparently saw Frederick, and the platform retracted back into the craft, which flew off. But the next day, the ET was back. And this time, Frederick had a face-to-face meeting, and was taken onboard the craft. Frederick says the craft took him on a trip around the world before returning him to the Mountbatten’s estate. It was an encounter he would keep secret for a long time.
@@ -79,7 +80,7 @@ On the evening of June 14, 1986, Bete Rodrigues and her cousin Debora were retur
 
 
 <!--############################################################################################-->
-episode 201.
+<h2>episode 201.</h2>
 
 1956 August - 
 One day in Aug 1956, a young boy, “CS,” played football with his friends in Badajoz, Spain. Suddenly a loud roar filled the sky, and looking up, they saw a silver, bullet-shaped object zoom towards them at fantastic acceleration, slow down, and then stop. And inside they saw two figures. About 30 people ran forward, gesturing for the UFO to land. The ETs waved back, but then flew away.
@@ -113,7 +114,7 @@ At 7:10 am, on Jan 2, 1995, Diana Newton drove along the A690 Road in Brancepeth
 One night in Nov 2008, Segundo Godoy Lopez was working on top of a building in downtown Santiago, Chile when he saw a strange aircraft approach. Next, it came to within 30 feet of him, and he could see two short, bald, gray figures inside staring directly at him. He tried to alert his co-workers but found himself paralyzed. Finally, the UFO moved away. But Segundo would never be the same.
 
 <!--############################################################################################-->
-episode 200.
+<h2>episode 200.</h2>
 
 On the night of May 15, 1951, “John,” an army officer was walking to his home north of Salzburg, Austria when a strange man wearing a glass helmet approached him. John found himself paralyzed as the man strapped an odd device to John’s chest and floated him into a craft landed nearby. Suddenly, the craft zoomed upwards. John was shocked to watch the Earth recede into the distance. Moments later, a beautiful landscape appeared before him, filled with lush red fields, blue canals, and tall spires. The craft landed at a saucer-port, the being exited, and John saw many other craft around him, some with other humans inside. Moments later, the ET returned. They took off and John was returned to Earth. For decades he told no one. But growing older, he finally decided it was time to talk.
 
@@ -128,16 +129,112 @@ In Jun of 1976, Rick A. Hale’s life changed forever. He was 21 years old, and 
 
 
 <!--############################################################################################-->
-episode 199.
+<h2>episode 199.</h2>
+
+One day in Aug 1914 as William Kiehl and other witnesses saw an odd object floating in Georgian Bay at Lake Ontario, Canada. Shaped like a bell-jar, he saw two humanoids holding a hose, sucking water from the bay. On top of the object were 3 other figures. The UFO departed so quickly that one of the little men clung to the outside of the craft.
+
+When three people decided to take the ferry across Okanagan Lake in British Columbia, Canada, in Aug 1952, they were awed to see a weird round boat zoom toward them on the lake. As it arrived, it rose into the air, showing itself to be a UFO. It hung there briefly, then moved back over the lake before darting off.
+
+Just before 8pm on Sep 15, 1962, three boys were shocked to see a UFO drop from the sky, plunge into the Oradell Reservoir in New Jersey, and takeoff. Unknown to them, others saw the object. The next night, the UFO was back. Soon, UFOs were being seen nightly, by hundreds of people. The UFO wave would garner national headlines.
+
+On the afternoon of Oct 31, 1963, more than 50 people observed a flying saucer lose control and plunge into the Peropava Rivera in Iguape, Brazil. As the water frothed and bubbled, the Brazilian military arrived and sent divers down to recover the craft. But after two weeks of searching, no evidence of the UFO was ever found.
+
+One evening in 1964, a group of fishermen at the Moraleda Channel in Castro, Chile were shocked to see a glowing man walk out of the sea. After staring at them for a few moments, the strange figure walked back into the ocean. They could still see a strange glow under the water. That’s when fish began to fill their nets in unprecedented numbers.
+
+On Apr 9, 1970, Max Krauss was taking a walk near his home in Aufhofen, Germany when he saw a 2-foot-wide, transparent sphere with spokes pacing
+him. The bizarre device hovered over a small stream and began sucking up water through a pipe. Moments later, it departed. As an electrician Max was convinced that he had seen something extraterrestrial.
+
+On the night of Nov 7, 1971, Albert Formiller walked along the beach at Cholla Bay, Mexico when a saucer-shaped craft appeared and sent down a beam of light nearly a half-mile wide onto the surface of the water. The craft remained for 20 minutes before slowly moving off. Unknown to Albert, many other people saw the strange display.
+
+In Jul 1973, “Masaaki” worked as a night-guard for a lumber company along the coast of Tomokomai, Japan. To his great fear, a UFO dropped down and began sucking water out of the bay. At one point, it moved overhead and was close enough that he could see strange humanoids inside.
+
+One evening in the 1970s, a missionary was staying at tiny Pityilu Island near Papua, New Guinea when a UFO appeared. It hovered for a few moments and then plunged into the shallow reefs offshore. A group of men sent a boat out to investigate, but before they could arrive, the object was gone.
+
+On the evening of Jul 15, 1981, 14-year-old, Carl E. Moore was amazed to see a UFO drop from the sky and float on the water of a small lake in Newberry, SC. As it hit the water, it sent up a cloud of steam. He watched it from 50 feet away, for three minutes before the craft darted away.
+
+One night in August 1981, a group of 5 witnesses driving in Hamilton, Ontario, Canada followed a red, glowing object as it made a controlled descent into Lake Ontario. Going to the shore, they saw two submarine-like objects emerge in the same exact location. Although the witnesses waited for hours, the UFO never emerged.
+
+
+<!--############################################################################################-->
+<h2>episode 198.</h2>
+
+On Jul 2, 1953, 14-year-old Maximo Munoz Hernaiz was guarding the cows on his family ranch in Villares Del Saz, Spain, when a UFO landed behind him. Three short men came out and spoke to him in a strange language. Then one of the ETs reached out and smacked him on the cheek. The ETs returned to the craft, which took off. Later, strange landing traces were found.
+
+Around 10am one morning in Jun 1954, a farmer in Bengough, Saskatchewan, Canada heard a strange motor-sound approaching from the air. Looking up, he was shocked to see a flying saucer with a large transparent cockpit, and seated inside were two human-looking men. The craft passed overhead no higher than 20 feet. It turned out, he was not the only witness.
+
+At 2am on Nov 28, 1954, Gustavo Gonzalez and Jose Ponce were driving through Petare, Venezuela when they came upon a glowing spherical- shaped object blocking the road. A small, hairy humanoid approached. Gustavo grabbed the strange being, only to be thrown to the ground. He tried to stab it with his knife. Meanwhile, people all over the area were reporting UFOs.
+
+Late one night in Jul 1968, Mrs. Eggers was woken in her home in Mt. Airy, NC by her dog begging to be let inside. Opening the door, she saw a flying saucer hover at low level across the street. Inside it, a strange humanoid looked down at her. The craft stayed for twenty minutes, during which time, there was a local power failure. Afterward, the witness suffered weird medical effects.
+
+On the morning of Oct 2, 1968, Toribio Pereira was on a construction job in Lins, Brazil when a dropped from the sky and landed right next to him. Four handsome, human-looking figures wearing robes appeared. One of them struck Toribio with a beam of light while the others examined the
+surroundings, took soil samples, and departed. Later, Toribio had more encounters, and was apparently healed by the ETs.
+
+Late one night in May 1971, an anonymous elderly lady was drinking tea in her home on Hudson’s Beach, in Waluku, New Zealand, and looking out the window, saw three strange figures on the beach. She thought they might be fisherman until they stepped on a silver-strip and were drawn into a reddish ball of light, which promptly soared high into the sky and disappeared.
+
+On the evening of May 3, 1973, Sigrid Karlson was walking her dog outside her home in Mantorp, Sweden, when she saw a red ball of light in the sky. Returning home, she watched it with her son, Robert, from the window. As it came closer, they both were amazed to see that it was a craft with a transparent dome, and inside were two strange humanoids looking at them.
+
+On Feb 23, 1975, two 7-year-old boys were roller- skating when they saw a UFO fly across the sky and land nearby. They ran up to it as a door opened and a short figure came out. It walked up to one of the boys and touched him on the shoulder. The boys were paralyzed in fear. Finally the ET returned into the craft. The boys ran to tell their parents who also saw the craft as it departed.
+
+Around 9pm on Jan 27, 1983, Alan was walking to a friend’s house in Bloxwich, England when he saw a UFO overhead. Moments later, two strange human-looking figures wearing gray jumpsuits appeared ahead of him. As he walked up to them, they said, “Come with us on a journey.” When Alan declined, and said he didn’t want to leave his life, they became insistent.
+
+On the night of Feb 18, 1990, a woman was walking with her dog near Korbach, Germany. Suddenly her dog whimpered and refused to move. A large glowing craft landed, and the dog ran away. The woman was struck by a beam of light. Shortly later, two short humanoids walked up to her and told her. “Don’t be afraid.” They ETs spoke to her and then departed.
+
+<!--############################################################################################-->
+<h2>episode 197.</h2>
+
+On the evening of April 21, 1967, Clifton Crowder was driving along Ferrell Road to his home in South Hill, Virginia when he noticed a shiny silver craft landed on the street in front of him. As he flicked on his high-beams, the craft belched a stream of flames and took off like a bullet straight up. The craft was gone, but left behind was a huge burn-mark on the road, and four evenly spaced holes gouged into the macadam surface. He went straight to the police and reported the incident. Unknown to him, dozens of people in the area were reporting UFOs flying around at treetop level, including police officers and firemen. UFO researchers converged on the case and declared it genuine. Project Blue Book was contacted and they were unable to identify the craft and labeled it unexplained, Case#11677.
+
+It was around 10:00 pm on August 6, 1971 when Don Ede looked outside his home in Westgate, Iowa and saw a brilliant flash in the sky, followed by a red-orange object which dropped down into his neighbor’s field. Unknown to Don, Mike Potratz who lived a short distance away also noticed the flash and the strange object. The next morning, both Don and Mike woke up early and went to investigate the farm of John Bantz, where they had seen the object come down. Together, joined by a member of the Bantz family, they found a 10-foot-wide circle of burned vegetation, surrounded by four smaller circles situated evenly around the circumference. Unknown to any of them, two other people were driving near the area two hours before Don and Ede saw the UFO and were chased down the road by an unknown object.
+ 
+At 2:00 am, on August 19, 1972, John I. Calkins woke up to see UFOs swooping down over his home in Gem, Kansas. He immediately called the local police in Colby, Kansas. Patrolman Paul Carter was sent to investigate, but before he could get there, the police officer came upon a landed UFO. He called for backup and his fellow officer, Dennis Brown arrived and watched the craft take-off. He saw that
+the craft was heading for nearby Oakley, and called their sheriff’s station. They came out and saw the UFO too. Meanwhile, they headed to John Calkins’ home in Gem, and the UFOs were still there. Meanwhile, the Colby police station was flooded with calls. The UFOs flew around all night long. It would be an experience that convinced many people that UFOs are real.
+ 
+At 4:10 am on January 5, 1977, 17-year-old Kirk Alore drove along Hwy 16 outside of Prince George, Canada. He noticed an oncoming car, and at the same time, saw a strange red light zooming towards it. Suddenly, the object approached him, and he realized it was a UFO. His body became numb as his car radio filled with static, his headlights failed and the engine died. The last thing he remembered was seeing the oncoming car come right at him, the UFO overhead, and then slamming on his brakes. He fell unconscious and woke up to find himself sitting in the passenger seat of his car. The other driver woke him up and told Kirk that he himself had also had missing time and woke up outside his car. Kirk was sore for a week, had a persistent headache, and his car battery was dead. Soon he would have more experiences and this time, he had more witnesses.
+ 
+Around 7:00 pm on Nov 8, 1975, Cathy Wilfong and Cindy Bridges were at their farm in Greenfield, Indiana when the power kept mysteriously going off. Two hours later, a huge UFO appeared over their soybean field. Their dog barked wildly and they fled to their house and called the police. When the police arrived, the UFOs had moved off into the distance, but were still visible. Meanwhile, calls flooded into the station from people reporting the UFOs. The next morning, Cathy and Cindy found a 44-foot-wide circle of crushed vegetation, tightly woven and matted together. When they went public with their story, many other witnesses stepped forward to report their own sightings in that area on that night.
+ 
+
+<!--############################################################################################-->
+<h2>episode 196.</h2>
+
+On the night of Apr 10, 1962, Mario Zuccala was walking to his home in San Casciano, Italy when he felt a blast of air behind him. Turning around he saw a 32-foot-wide flying saucer land nearby. Out stepped two short humanoid figures covered from head to toe in shiny metallic suits. They grabbed Mario and pulled him onboard the craft. Inside, he saw nothing but bright light. The ETs told him that they have a message for all humanity, which they will give to him later. Mario later had further encounters, but never revealed what the ETs told him.
+
+On the evening of Jun 23, 1967, Paulo Coutinho (age 17) was walking home from school in Aricanduva, Brazil when a glowing orb dropped fell the sky and landed in front of him. The orb dimmed to reveal a 3-foot-tall humanoid who pulled Paulo into the sky and up into a huge craft. Inside, Paulo was examined by ETs and held a long conversation. They told him that no harm would come to him, that they were visiting Earth to help, that God is real, that humanity needs to become peaceful before they can show themselves, and much more. Returned to his home, Paulo learned that he had been missing for 20 hours. Following the encounter, his stuttering problem disappeared. He also learned that his mother had seen a UFO on the day Paulo was born.
+
+At 11:45 pm on Feb 10, 1981, Kathy (a medical professional) was driving to her home in Renton, WA when a glowing craft appeared above her car. Alarmed, she drove the short distance to her apartment, only to find that the UFO had followed her home. She ran to her front door, only to discover that she had missing time. Later, under hypnosis, she recalled being taken onboard a craft and examined by gray aliens who
+told her that she was doing well, that they were pleased with how her father had taught her, and that they would meet again. She told her father what happened. He wept and told her that he had been taken three times by the same ETs.
+
+In the early morning hours of Aug 12, 1983, 77-year- old gardener, Alfred Burtoo set out for a fishing trip along the banks of a canal in Aldershot, England. To his shock, a UFO landed nearby, and out came two 4-foot-tall humanoids dressed in shiny green suits and helmets. They walked up to him and gestured for him to follow them onboard their craft. Inside, Alfred saw rounded walls, a central column, and a strange beam of light. They instructed him to stand under the light so they could examine him. Afterwards they turned to him and said, “You can go. You are too old and infirm for our purpose.” Mildly disappointed at being rejected by the ETs, Alfred exited the craft, which promptly took off. Alfred later called it the greatest experience of his life.
+
+One night in the 1990s, Sharon Beals was in her home in the USA when she saw odd lights through the skylight. At the same time, her 2-year-old daughter, Kelly (who had been complaining of monsters and “sky monkeys” entering her room) came running in. Without warning, both woke up to realize that hours had passed. Sharon discovered that her eyeglasses were bent so badly, they were now useless. Knowing she had been taken again, she went under hypnosis and recalled being taken onboard a craft. Inside she saw gray ETs who told her that they were her friends, that she was safe, and did she want to help save the planet? Sharon saw her daughter and several other people onboard the craft before being transported through the ceiling of her home and into her bedroom.
+
+<!--############################################################################################-->
+<h2>episode 195.</h2>
 
 
 
 <!--############################################################################################-->
-episode 198.
+<h2>episode 194.</h2>
 
 
 
 <!--############################################################################################-->
-episode 197.
+<h2>episode 193.</h2>
+
+
+
+<!--############################################################################################-->
+<h2>episode 192.</h2>
+
+
+
+<!--############################################################################################-->
+<h2>episode 191.</h2>
+
+
+
+<!--############################################################################################-->
+<h2>episode 190.</h2>
+
 
 
